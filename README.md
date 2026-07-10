@@ -33,3 +33,13 @@ I am not trying to convince, persuade, or convert anyone. That is not my goal. I
 May God bless the endeavor.
 
 ## Early Faith
+
+I grew up in the Christian and Missionary Alliance from the time I was a baby. Because my family did not always have reliable transportation, we often bounced between two different C&MA churches depending on who could give us a ride. Much of our week revolved around church activities, and we relied on others to get us there whenever services or events were taking place.
+
+I also attended a C&MA elementary school, where Bible classes were a regular part of the curriculum. During the summer, I attended a C&MA Bible camp. My grandparents owned a cottage on the campground, and many of my childhood memories are connected to that place. During Family Camp, all of us cousins would sleep together on the back porch during the hot summer nights. We attended children's programs and youth services, often gathering for meetings twice a day throughout the ten days of camp.
+
+From an early age, I was immersed in a revivalist form of Christianity. I loved the camp meetings, the services, and the sense of spiritual excitement that surrounded them. In every direction, my world was shaped by this tradition. Looking back, I would say that I was fully immersed in the phronema of the Christian and Missionary Alliance, even though no one would have used that word at the time.
+
+The C&MA of my childhood felt somewhat old-fashioned by today's standards. Men commonly wore suits and ties to church, while women dressed modestly. Certain activities, such as dancing, playing cards, and drinking alcohol, were discouraged or forbidden in some circles. Although these standards were not observed universally and gradually faded during the 1980s and 1990s, my family—and especially my grandparents' generation—continued to follow them closely.
+
+As I look back, I would describe my religious upbringing as an expression of traditional American Protestantism shaped by church life, revival meetings, camp meetings, and Family Camp. These influences formed the background of my childhood and played a significant role in shaping my understanding of the Christian faith.
