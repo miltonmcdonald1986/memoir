@@ -1,5 +1,7 @@
 # Why I Converted to Eastern Orthodox Christianity
 
+## Introduction
+
 Although my family's conversion to Eastern Orthodox Christianity seemed sudden to many in my church community, it was actually the result of a lifelong spiritual journey and years of reflection. My wife and I were deeply involved in the life of our church. We served as youth leaders and volunteered in children's ministries. Maria participated in the worship band, while I was active in men's groups. Because of our involvement, many people viewed us as committed, long-term members of the congregation. To be honest, that is how we viewed ourselves as well.
 
 For that reason, our departure came as a surprise to many people. Some reached out to ask what had happened, while others invited us to dinner to talk about our decision. Many expressed confusion about Orthodoxy and wondered why we would make such a significant change. They did not know the full story behind our departure or the path that had led us there.
