@@ -1,2 +1,3 @@
-# memoir
-This document attempts to explain to the world why I converted to Eastern Orthodox Christianity
+# Why I Converted to Eastern Orthodox Christianity
+
+Although my family's conversion to Eastern Orthodox Christianity seemed sudden to many in my church community, it was actually the result of a lifelong spiritual journey and years of reflection. My wife and I were deeply involved in the life of our church. We served as youth leaders and volunteered in children's ministries. Maria participated in the worship band, while I was active in men's groups. Because of our involvement, many people viewed us as committed, long-term members of the congregation. To be honest, that is how we viewed ourselves as well.
