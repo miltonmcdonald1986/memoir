@@ -25,3 +25,11 @@ As we began discussing my reasons for leaving, however, the conversation quickly
 I soon realized that this was not unique to that conversation. Similar discussions followed with other friends and church leaders. In one case, I met regularly with a man over the course of several weeks, hoping to explain what had led me to Orthodoxy. Yet our conversations repeatedly returned to theological debate. Again and again, I found myself unable to communicate what was happening in my heart.
 
 As a result, I often left those conversations feeling frustrated. I wanted people to understand that my decision was not driven primarily by a desire to settle doctrinal disputes. At the same time, I do not know that I could have explained it much better than I did. Compressing years of searching, questioning, and reflection into a one-hour conversation is difficult. Even now, I sometimes wonder whether I can explain it satisfactorily. Perhaps the gap between the two ways of thinking is simply difficult to bridge in conversation, especially for someone who is not asking the same questions that once drove my own search.
+
+The purpose of this work is simply to tell my story from the beginning. I cannot think of a better way to answer the question, "Why Orthodoxy?" than to explain the path that led me here. My hope is that, by understanding where I have come from, you will better understand how I arrived at where I am today.
+
+I am not trying to convince, persuade, or convert anyone. That is not my goal. I cannot make you see what I saw or feel what I felt, nor can I make you arrive at the same conclusions that I did. All I can do is tell the truth about my journey and allow you to reach your own conclusions.
+
+May God bless the endeavor.
+
+## Early Faith
