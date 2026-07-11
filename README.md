@@ -4,6 +4,7 @@
 - [Introduction](#introduction)
 - [Early Faith](#early-faith)
 - [Prophecy Culture and Dispensationalism](#prophecy-culture-and-dispensationalism)
+- [Fear](#fear)
 
 ## Introduction
 
@@ -118,3 +119,13 @@ Even as a child, this theology didn’t make sense to me. When I sat down and re
 These verses were interpreted for me through the guidance and authority of people I trusted: Jack Van Impe, other television prophets, my parents, preachers in the Christian and Missionary Alliance, and other denominations. I didn’t know this as a kid, but you are always reading Scripture through a lens of interpretation. You cannot sit down and “just read the Bible” without a lens, because you already have a worldview, a way of understanding things, and that will always be in play. Sola scriptura—the idea that all we need to do is read the Bible and it will speak for itself—is unfortunately not true. So the real question becomes: who is your authority? What is your interpretive framework? Whom are you going to submit to when trying to understand the Bible?
 
 I remember sitting in study hall in high school with a Bible by myself, deciding that I was going to figure out the “correct” Christianity. I quickly realized this would be absolutely impossible and came to the disheartening conclusion that maybe there was no true Christianity at all, and that we were all just trying to figure it out because God had decided not to tell us. Now, as an Eastern Orthodox Christian, I have chosen to submit my rational mind—at least in terms of interpreting Scripture—to the Church Fathers and the faith of the apostles that has been handed down. Of course, I understood none of this back then. All I knew was that there was a tension in my heart because the rapture simply didn’t make sense when I read the Bible.
+
+## Fear
+
+Fear was a tool used to shape my spirituality as a child. I was explicitly taught to be afraid of many things: Satanism, demons, witchcraft, the occult, Halloween, trick‑or‑treating. We were always told that people hid razor blades in Halloween candy or that we might encounter real witches and demons if we participated. Rock and roll was called “the devil’s music,” and we heard stories about musicians biting the heads off chickens or performing satanic rituals in the middle of concerts. Ouija boards were seen as doorways to demonic possession. I’m not saying all of this was necessarily untrue, but it was the fear that got to me—the sense that something was always out there waiting to devour you.
+
+Let me give you a couple of examples, the kinds of fearful stories that were first spread through chain letters and, as the internet developed, through email, social media, and YouTube.
+
+I was warned by my mother about Black‑Eyed Children—demonic beings that would come and knock on your door at night. As long as you didn’t let them into your home, you were safe, but if you foolishly opened the door, something horrible would happen. The terrifying part was that these Black‑Eyed Children were said to prey on your sense of mercy: begging for food, claiming someone was chasing them, asking if they could come inside and hide. That was how they supposedly tricked you into falling for their trap.
+
+I was terrified of these children and desperately hoped I would never meet them. It wasn’t until later that I learned the whole thing came from a tabloid story in the 1980s. It had nothing to do with Christianity at all—it was just an urban legend. But the fear was real.
