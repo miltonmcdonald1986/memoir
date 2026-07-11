@@ -137,7 +137,11 @@ We kids were often entertained and indoctrinated through the use of Chick tracts
 
 Now, as an adult, I realize these comics are ridiculous, but as a child I accepted them as an authority. My parents gave them to me, and they were produced by a Christian publishing house—which I assumed was legitimate. We all have authorities and worldviews we subscribe to, whether we say it out loud or not.
 
-Some of the other things Chick tracts claimed were that the Roman Catholic Church was the Whore of Babylon, that the Pope and Satan were in a conspiracy together to form a one‑world religion, and many other similar accusations. As an Orthodox Christian now, I recognize some of these same attacks being directed at me—even though I’m not Catholic, and even though there are many differences between Catholics and Orthodox. But some of the similarities between us would be enough for Jack Chick to send us to hell.
+Some of the other things Chick tracts claimed were that the Roman Catholic Church was the Whore of Babylon, that the Pope and Satan were in a conspiracy together to form a one‑world religion, that catholics have a double loyalty between the United States and Vatican City, and many other similar accusations. As an Orthodox Christian now, I recognize some of these same attacks being directed at me—even though I’m not Catholic, and even though there are many differences between Catholics and Orthodox. But some of the similarities between us would be enough for Jack Chick to send us to hell.
+
+There were some real problems with this exclusivism that bothered me immensely as a child, and they’ve only been resolved for me now that I belong to the Orthodox Church. One of the biggest issues involved my family. My dad’s side of the family was Roman Catholic, and hearing my mother tell me that my grandmother was going to hell did something to me that was deeply damaging. It forced me into a terrible dilemma: either God was evil and capricious, or my mom was wrong.
+
+My grandmother loved God. She prayed every day. She loved Him deeply. She believed in Jesus. She trusted Him as her savior. How could God send someone to hell who loves Him and wants to be with Him, just because her theology was “incorrect”? To me, even as a child, that felt absolutely insane and profoundly wrong.
 
 ## Fear
 
