@@ -143,6 +143,14 @@ There were some real problems with this exclusivism that bothered me immensely a
 
 My grandmother loved God. She prayed every day. She loved Him deeply. She believed in Jesus. She trusted Him as her savior. How could God send someone to hell who loves Him and wants to be with Him, just because her theology was “incorrect”? To me, even as a child, that felt absolutely insane and profoundly wrong.
 
+Another issue had to do with the fate of those who had never heard of Christ at all. These were the people we called “the lost” in our church, and part of the goal of mission work was to send missionaries out to save them. You’ll notice this isn’t exactly what the Great Commission tells us to do in Matthew; it tells us to make disciples, which is different from “saving the lost.” Without getting too deep into that distinction, my childhood heart simply could not accept the idea that a loving God would consign billions of people to hell for the sin of not knowing He existed. If they didn’t know He existed, how could they be punished for offending Him?
+
+Yes, the Bible says that what is important to know about God is made manifest through His creation. But to me, that actually supported my point: it suggests someone can come to know God through creation itself without ever hearing the name of Jesus or knowing anything about a cross.
+
+In a way, I almost had a kind of survivor’s guilt—feeling that I didn’t deserve to be born in America, where I could hear the gospel. It all felt arbitrary. Later on, I realized this came from Calvinist theology infecting our faith, even though nobody I knew ever said that out loud.
+
+I rest more easily now knowing that Christ is the Savior of the whole world and that all will be raised and face the judgment. Christ is a merciful judge. I’m not claiming to know what His judgments will be for any particular person, but I know they will not be capricious, arbitrary, or random. Because otherwise it would mean geography matters more than mercy, and the time and place you were born matters more than what He did for you on the cross. Essentially, it would mean God’s love has borders.
+
 ## Fear
 
 Fear was a tool used to shape my spirituality as a child. I was explicitly taught to be afraid of many things: Satanism, demons, witchcraft, the occult, Halloween, trick‑or‑treating. We were always told that people hid razor blades in Halloween candy or that we might encounter real witches and demons if we participated. Rock and roll was called “the devil’s music,” and we heard stories about musicians biting the heads off chickens or performing satanic rituals in the middle of concerts. Ouija boards were seen as doorways to demonic possession. I’m not saying all of this was necessarily untrue, but it was the fear that got to me—the sense that something was always out there waiting to devour you.
