@@ -1,5 +1,9 @@
 # Why I Converted to Eastern Orthodox Christianity
 
+## Table of Contents
+- [Introduction](#introduction)
+- [Early Faith](#early-faith)
+
 ## Introduction
 
 Although my family's conversion to Eastern Orthodox Christianity seemed sudden to many in my church community, it was actually the result of a lifelong spiritual journey and years of reflection. My wife and I were deeply involved in the life of our church. We served as youth leaders and volunteered in children's ministries. Maria participated in the worship band, while I was active in men's groups. Because of our involvement, many people viewed us as committed, long-term members of the congregation. To be honest, that is how we viewed ourselves as well.
@@ -88,7 +92,7 @@ Although I failed many times afterward and would experience similar moments agai
 
 I’ll return to that moment in my life shortly, but first I need to pause and explain the religious framework in which I was spiritually formed. There are a few elements that uniquely shaped my situation and the kind of Christianity I inherited. The first of these is prophecy culture and dispensationalism.
 
-# Prophecy Culture and Dispensationalism
+## Prophecy Culture and Dispensationalism
 
 Dispensationalism is an all‑encompassing way of viewing history, where the entire timeline is already mapped out and you’re simply living at a point on that chart—always on the verge of prophecy being fulfilled. Current events are interpreted as signs pointing toward the end times. This framework includes the idea of a rapture, a secret return of Christ that happens before the tribulation begins. It teaches that Israel plays a critical role in the fulfillment of prophecy and that Israel and the Church are distinct entities in God’s plan. It also comes with a whole vocabulary of end‑times concepts—millennium, tribulation, antichrist, mark of the beast—familiar to anyone who grew up with books like Left Behind, The Late Great Planet Earth, or even the Scofield Reference Bible.
 
