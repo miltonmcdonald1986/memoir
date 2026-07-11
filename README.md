@@ -3,6 +3,7 @@
 ## Table of Contents
 - [Introduction](#introduction)
 - [Early Faith](#early-faith)
+- [Prophecy Culture and Dispensationalism](#prophecy-culture-and-dispensationalism)
 
 ## Introduction
 
