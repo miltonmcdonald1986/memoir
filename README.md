@@ -4,7 +4,8 @@
 - [Introduction](#introduction)
 - [Early Faith](#early-faith)
 - [Prophecy Culture and Dispensationalism](#prophecy-culture-and-dispensationalism)
-- [Exclusivism and Fear](#exclusivism-and-fear)
+- [Exclusivism](#exclusivism)
+- [Fear](#fear)
 
 ## Introduction
 
@@ -120,7 +121,25 @@ These verses were interpreted for me through the guidance and authority of peopl
 
 I remember sitting in study hall in high school with a Bible by myself, deciding that I was going to figure out the “correct” Christianity. I quickly realized this would be absolutely impossible and came to the disheartening conclusion that maybe there was no true Christianity at all, and that we were all just trying to figure it out because God had decided not to tell us. Now, as an Eastern Orthodox Christian, I have chosen to submit my rational mind—at least in terms of interpreting Scripture—to the Church Fathers and the faith of the apostles that has been handed down. Of course, I understood none of this back then. All I knew was that there was a tension in my heart because the rapture simply didn’t make sense when I read the Bible.
 
-## Exclusivism and Fear
+## Exclusivism
+
+One of the accusations people confront me with when they hear I converted to Orthodoxy is that the Orthodox Church is exclusionist—meaning it believes there’s no safety, in terms of salvation, outside the Orthodox Christian Church. On the surface, that accusation seems legitimate. After all, aren’t we all Christians? And yet my own tradition had an exclusivism it didn’t even recognize. They said anyone who was a “born‑again believer” was saved and going to heaven, but the part they left out—and the part that was deeply true in our tradition—was that it wasn’t enough to believe in Christ. You had to have all the correct beliefs, or you were in real danger of hell.
+
+For example, it wasn’t enough to believe that Christ died on the cross for our sins. You also had to believe that He was receiving a punishment from God when it happened. In other words, you had to subscribe to the correct atonement theory, or you weren’t necessarily saved—even if you believed in Jesus.
+
+Another example had to do with works. You were supposed to do good works, but if you accidentally had the idea that your works were pleasing to God, or that you were somehow experiencing salvation through them, you were considered to be on the path to absolute hellfire and brimstone. It is astonishing to me how much the idea of works was ridiculed and criticized in my tradition—so much so that it felt like, as long as you said the prayer and “got Jesus in your heart,” it didn’t really matter how you lived. Because if you tried to do a work, you might undo everything and wind up in hell.
+
+This exclusivism threatened not just Orthodox and Catholics, but also fellow Protestants who didn’t hold enough of the “correct” beliefs that we did. My childhood heart felt comfort in the idea that I had the correct beliefs and belonged to the group with the correct beliefs. But my mind was smart enough to realize that maybe—just maybe—I was wrong. What if one of the other groups had the correct beliefs instead? Was I going to hell for that?
+
+My instinct was simply to rely on the mercy of Christ, which is interesting because that’s my viewpoint now as an adult. But back then, relying on Christ’s mercy wasn’t enough if you didn’t sincerely believe everything correctly. Perhaps an official from the C&MA church would argue that these are not official positiona doctrines of the church. And if so, I accept that. But I can tell you that on the practical, day to day level, this is what I was taught.
+
+We kids were often entertained and indoctrinated through the use of Chick tracts. These were comic‑style pamphlets meant to evangelize, but they were so polemical that they came across as downright hateful. The comics outright stated that Catholics were going to hell. They implied that mainline Protestants were probably going to hell. People who believed in evolution were going to hell. Basically, everyone was going to hell except the people who believed in the exact caricature of Christ being presented in the comic strip.
+
+Now, as an adult, I realize these comics are ridiculous, but as a child I accepted them as an authority. My parents gave them to me, and they were produced by a Christian publishing house—which I assumed was legitimate. We all have authorities and worldviews we subscribe to, whether we say it out loud or not.
+
+Some of the other things Chick tracts claimed were that the Roman Catholic Church was the Whore of Babylon, that the Pope and Satan were in a conspiracy together to form a one‑world religion, and many other similar accusations. As an Orthodox Christian now, I recognize some of these same attacks being directed at me—even though I’m not Catholic, and even though there are many differences between Catholics and Orthodox. But some of the similarities between us would be enough for Jack Chick to send us to hell.
+
+## Fear
 
 Fear was a tool used to shape my spirituality as a child. I was explicitly taught to be afraid of many things: Satanism, demons, witchcraft, the occult, Halloween, trick‑or‑treating. We were always told that people hid razor blades in Halloween candy or that we might encounter real witches and demons if we participated. Rock and roll was called “the devil’s music,” and we heard stories about musicians biting the heads off chickens or performing satanic rituals in the middle of concerts. Ouija boards were seen as doorways to demonic possession. I’m not saying all of this was necessarily untrue, but it was the fear that got to me—the sense that something was always out there waiting to devour you.
 
@@ -133,13 +152,3 @@ I was terrified of these children and desperately hoped I would never meet them.
 Another legend we heard about was the Three Days of Darkness, when the sun would supposedly go dark for three days. If you didn’t have every single part of your windows covered, demons would come into your home and torment or kill you. No artificial or electric light would work—only blessed beeswax candles—and you had to be prepared with food and candles so you could survive the three days. Later on, I was stunned when I found out that the supposed prophecy came from the private revelations of a Roman Catholic mystic named Anna Maria Taigi in the 1700s. She instructed the faithful to stay inside, keep the windows covered, and pray the rosary while demonic forces and pestilences roamed outside.
 
 Why would anyone in my religious circle subscribe to this theory when they were so anti‑Catholic and didn’t care at all what a Catholic mystic had to say? The only explanation I can come up with is that the fear ran so deep that we just accepted whatever frightening thing someone on YouTube told us and assumed it was true.
-
-One of the accusations people confront me with when they hear I converted to Orthodoxy is that the Orthodox Church is exclusionist—meaning it believes there’s no safety, in terms of salvation, outside the Orthodox Christian Church. On the surface, that accusation seems legitimate. After all, aren’t we all Christians? And yet my own tradition had an exclusivism it didn’t even recognize. They said anyone who was a “born‑again believer” was saved and going to heaven, but the part they left out—and the part that was deeply true in our tradition—was that it wasn’t enough to believe in Christ. You had to have all the correct beliefs, or you were in real danger of hell.
-
-For example, it wasn’t enough to believe that Christ died on the cross for our sins. You also had to believe that He was receiving a punishment from God when it happened. In other words, you had to subscribe to the correct atonement theory, or you weren’t necessarily saved—even if you believed in Jesus.
-
-Another example had to do with works. You were supposed to do good works, but if you accidentally had the idea that your works were pleasing to God, or that you were somehow experiencing salvation through them, you were considered to be on the path to absolute hellfire and brimstone. It is astonishing to me how much the idea of works was ridiculed and criticized in my tradition—so much so that it felt like, as long as you said the prayer and “got Jesus in your heart,” it didn’t really matter how you lived. Because if you tried to do a work, you might undo everything and wind up in hell.
-
-This exclusivism threatened not just Orthodox and Catholics, but also fellow Protestants who didn’t hold enough of the “correct” beliefs that we did. My childhood heart felt comfort in the idea that I had the correct beliefs and belonged to the group with the correct beliefs. But my mind was smart enough to realize that maybe—just maybe—I was wrong. What if one of the other groups had the correct beliefs instead? Was I going to hell for that?
-
-My instinct was simply to rely on the mercy of Christ, which is interesting because that’s my viewpoint now as an adult. But back then, relying on Christ’s mercy wasn’t enough if you didn’t sincerely believe everything correctly. Perhaps an official from the C&MA church would argue that these are not official positiona doctrines of the church. And if so, I accept that. But I can tell you that on the practical, day to day level, this is what I was taught.
