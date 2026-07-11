@@ -6,6 +6,7 @@
 - [Prophecy Culture and Dispensationalism](#prophecy-culture-and-dispensationalism)
 - [Exclusivism](#exclusivism)
 - [Fear](#fear)
+- [Legalism](#legalism)
 
 ## Introduction
 
@@ -170,3 +171,13 @@ The underlying message beneath all of this was simple: danger was everywhere, an
 Since becoming Orthodox, people have confronted me, saying I’ve “left behind assurance.” It’s because the Orthodox Church would never presume to say who is going to heaven and who is going to hell. We believe that Christ is the final judge, and He will be the one who decides. So people attack us by saying we must have a horrible faith because we “don’t know” if we’re going to heaven. I would say that’s not exactly true. While we would never presume to declare it, we also trust in the love of Christ, follow Him to the best of our ability, and desire to be with Him. Christ is merciful in spite of our sin, and this is what we place our hope in.
 
 I’ve come to understand that assurance is mostly a theological tool that encourages a certain kind of evangelism—Billy Graham–style altar calls where you say a sinner’s prayer, someone pats you on the back and says, “Brother, you’re saved,” and then you go on to live a life of sin and debauchery while expecting to stroll into the pearly gates when it’s all said and done. Another reason I think assurance is a bad theology is because if someone doesn’t feel that assurance, you’re essentially telling them they’re doing it wrong—that they’re not believing hard enough or sincerely enough. And if my experience is any indication, people who loudly claim assurance don’t necessarily feel it deep down. Or maybe it was just me.
+
+## Legalism
+
+The system was also very legalistic. Entertainment was lightly policed, and don’t get me wrong — I think it’s good to discern what we allow into our minds, so I’m not saying that part was automatically bad. But combined with other legalistic policies, life began to feel a little oppressive. Alcohol was strictly forbidden for any reason, and there were ridiculous excuses given to make it sound biblical, such as claiming that Jesus changing water into wine meant He created unfermented wine. Give me a break.
+
+There was also a strong purity culture pushed at the time by a man named Joshua Harris, who wrote I Kissed Dating Goodbye. There were father‑daughter purity events, purity rings, purity pledges — all of it built around the idea that your worth depended on staying pure and untouched. Youth leaders would often say outright that if you committed sexual sin, you were tainted for life. Yes, God could forgive and redeem you, but you could never be clean from it. It created the idea that sexual sin was essentially unforgivable. Shame outweighed grace in this system.
+
+It also caused the kids in the youth group to play stupid games about how close they could get without actually crossing the line with their girlfriend or boyfriend. In a way, legalism actually allowed you to commit more sin, as long as you didn’t cross the specific legalistic line you’d been given. Instead of saying, “I want to please God, so I’m going to refrain from fornication or sexual immorality,” we would say, “As long as I don’t touch her here or put this part there, we’re not doing anything wrong.” Legalism is definitely not a good strategy for faith.
+
+The funny thing is that when I joined the Orthodox Church, I got vicious attacks from people saying how legalistic the Orthodox are with all their rules, regulations, and ritualism. Yet I can tell you that is 100% not the case. This is the most free faith I’ve ever belonged to. I’ve never felt such liberty to live my life for God without having to worry about rules and regulations. And yes, it seems counterintuitive because we have things like fasting calendars, confession, preparation for communion, and other practices — yet somehow they are freeing rather than restricting. I don’t know how to describe it, but I can tell you that in my heart, I no longer feel like I belong to a legalistic system.
