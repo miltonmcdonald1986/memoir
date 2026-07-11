@@ -4,7 +4,7 @@
 - [Introduction](#introduction)
 - [Early Faith](#early-faith)
 - [Prophecy Culture and Dispensationalism](#prophecy-culture-and-dispensationalism)
-- [Fear](#fear)
+- [Exclusivism and Fear](#exclusivism-and-fear)
 
 ## Introduction
 
@@ -120,7 +120,7 @@ These verses were interpreted for me through the guidance and authority of peopl
 
 I remember sitting in study hall in high school with a Bible by myself, deciding that I was going to figure out the “correct” Christianity. I quickly realized this would be absolutely impossible and came to the disheartening conclusion that maybe there was no true Christianity at all, and that we were all just trying to figure it out because God had decided not to tell us. Now, as an Eastern Orthodox Christian, I have chosen to submit my rational mind—at least in terms of interpreting Scripture—to the Church Fathers and the faith of the apostles that has been handed down. Of course, I understood none of this back then. All I knew was that there was a tension in my heart because the rapture simply didn’t make sense when I read the Bible.
 
-## Fear
+## Exclusivism and Fear
 
 Fear was a tool used to shape my spirituality as a child. I was explicitly taught to be afraid of many things: Satanism, demons, witchcraft, the occult, Halloween, trick‑or‑treating. We were always told that people hid razor blades in Halloween candy or that we might encounter real witches and demons if we participated. Rock and roll was called “the devil’s music,” and we heard stories about musicians biting the heads off chickens or performing satanic rituals in the middle of concerts. Ouija boards were seen as doorways to demonic possession. I’m not saying all of this was necessarily untrue, but it was the fear that got to me—the sense that something was always out there waiting to devour you.
 
