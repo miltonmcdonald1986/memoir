@@ -9,6 +9,7 @@
 - [Legalism](#legalism)
 - [Revivalism](#revivalism)
 - [Rise of Modern Worship Culture](#rise-of-modern-worship-culture)
+- [The Good That Shaped Me](#the-good-that-shaped-me)
 
 ## Introduction
 
@@ -215,3 +216,15 @@ Eventually I became good enough at guitar to lead worship in youth group. I prin
 I never stopped to ask basic questions: Who was writing these songs? Who was publishing them? What theology shaped the lyrics? How connected were the Christian and secular music industries? Only later did I realize that what we bring into our ears and sing with our lips on Sunday mornings might not be as innocent as it seems.
 
 Around the same time, a broader Christian subculture was exploding. We built a full alternative to secular culture—Christian music, Christian books, Christian clothing, and movements like WWJD, The Prayer of Jabez, I Kissed Dating Goodbye, and more. It was an interesting time to be a Christian high schooler living inside that world.
+
+## The Good That Shaped Me
+
+It might sound as though I've been complaining as I've written about the framework I grew up in, mentioning things like fear, legalism, and other shortcomings. As if I am dissatisfied or discontent. And perhaps there is some truth to that. But I don't want to end this section without acknowledging the good that shaped me within this tradition.
+
+I loved church. I loved being part of the body of Christ as I experienced it, and it was something I always looked forward to as a child and teenager. I felt genuine conviction of sin and a sincere desire for repentance. I understood that holiness mattered and that my life should reflect it. I truly believed in Jesus and was deeply grateful for all He had done for me.
+
+My church taught me to love and honor the Bible—to read it fervently and deeply, to study its words, and to strive continually for a better understanding of it. Even when my own interpretations didn't always align with some of the doctrines I was taught, I still loved learning, studying, and even debating Scripture with others.
+
+There was also a real joy in worship, especially within the youth group. It's difficult to describe the emotions that come with being swept up in those powerful worship moments, surrounded by friends and shared enthusiasm, especially at large youth retreats. The big bands, dim lights, loud music, passionate preaching, endless games, junk food, sleepless nights, and long drives all combined into something memorable. I genuinely loved every part of it.
+
+Now, after serving as a youth leader and journeying into Eastern Orthodoxy, my perspective on some of these things has changed. Yet I don't want to minimize those experiences or dismiss the impact they have on young people who are learning to seek Christ. Whatever conclusions I have reached as an adult, I can still recognize the sincere faith, joy, and spiritual longing that were present in those moments, both in myself and in many of those around me.
