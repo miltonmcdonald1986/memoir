@@ -8,6 +8,7 @@
 - [Fear](#fear)
 - [Legalism](#legalism)
 - [Revivalism](#revivalism)
+- [Rise of Modern Worship Culture](#rise-of-modern-worship-culture)
 
 ## Introduction
 
@@ -202,3 +203,15 @@ The only practical guidance I ever received was to read my Bible and pray. While
 These retreats were intense. The lights were dim, the music was loud and often somewhat sensual. People cried at the altar. Boys and girls hugged each other, and I often felt uncomfortable realizing that a girl was touching me while I was trying to pour out my soul to God, distracted by the physical elements of it. I brushed up against Pentecostal and charismatic expressions like speaking in tongues and falling on the floor, and I was completely repulsed by it. It was one of the most horrible feelings I ever had in my heart. I was angry and never wanted to experience it again. Thankfully, in my teen years the Pentecostal/charismatic element was not very strong in the C&MA, although that has changed now.
 
 I remember at one Christian music festival spontaneously getting baptized again, crying my heart out and hoping that this time the baptism would “stick,” because I felt so defiled and dirty. I just wanted to be clean and pure again and pleasing in the sight of God. No matter how hard I tried to grab hold of Him at these retreats, it slipped through my fingers every time. So I continued to chase these spiritual highs. They came, they faded, and I stayed the same.
+
+## Rise of Modern Worship Culture
+
+I remember contemporary worship culture entering our church slowly. It began when “chorus books” appeared next to the hymnals in the pews. These were collections of simple praise songs from the 70s and 80s, formatted like hymnbooks. We often alternated between hymns and choruses, creating a balance that seemed to keep everyone satisfied—at least from my perspective as a kid. Looking back, there may have been tensions I didn’t notice.
+
+Youth group, however, rushed headlong into the modern worship scene. Our youth leader kept a lending library of CDs in her office, stocked with Switchfoot, MercyMe, Relient K, Audio Adrenaline, and more. I borrowed them constantly and played them nonstop. I got so into worship music that I asked for a guitar for Christmas and enrolled in the guitar electives at my high school. I’ll admit I partly wanted to impress girls with my “spirituality,” which was mostly superficial at the time. But beneath that, something in me genuinely resonated with the worship—hopefully on a deeper level than just emotion.
+
+Eventually I became good enough at guitar to lead worship in youth group. I printed overhead slides with lyrics from the latest Christian songs. Our setlists included “Here I Am to Worship,” “In the Secret,” “God of Wonders,” and others. It was fun, and I loved doing it. I had no idea I was participating in the early stages of a major religious shift—one that would throw off tradition and completely redefine what Sunday morning looked like and even why people went to church.
+
+I never stopped to ask basic questions: Who was writing these songs? Who was publishing them? What theology shaped the lyrics? How connected were the Christian and secular music industries? Only later did I realize that what we bring into our ears and sing with our lips on Sunday mornings might not be as innocent as it seems.
+
+Around the same time, a broader Christian subculture was exploding. We built a full alternative to secular culture—Christian music, Christian books, Christian clothing, and movements like WWJD, The Prayer of Jabez, I Kissed Dating Goodbye, and more. It was an interesting time to be a Christian high schooler living inside that world.
