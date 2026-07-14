@@ -10,6 +10,7 @@
 - [Revivalism](#revivalism)
 - [Rise of Modern Worship Culture](#rise-of-modern-worship-culture)
 - [The Good That Shaped Me](#the-good-that-shaped-me)
+- [Deconstruction](#deconstruction)
 
 ## Introduction
 
@@ -228,3 +229,11 @@ My church taught me to love and honor the Bible—to read it fervently and deepl
 There was also a real joy in worship, especially within the youth group. It's difficult to describe the emotions that come with being swept up in those powerful worship moments, surrounded by friends and shared enthusiasm, especially at large youth retreats. The big bands, dim lights, loud music, passionate preaching, endless games, junk food, sleepless nights, and long drives all combined into something memorable. I genuinely loved every part of it.
 
 Now, after serving as a youth leader and journeying into Eastern Orthodoxy, my perspective on some of these things has changed. Yet I don't want to minimize those experiences or dismiss the impact they have on young people who are learning to seek Christ. Whatever conclusions I have reached as an adult, I can still recognize the sincere faith, joy, and spiritual longing that were present in those moments, both in myself and in many of those around me.
+
+## Deconstruction
+
+I mentioned earlier how Young Earth Creationism (YEC) functioned as a kind of litmus test for faith in the environment where I was raised. When I entered college, I was unprepared to discover that this perspective was actually part of a particular American Christian subculture and that most Christians around the world did not share it. It became one of the first beliefs from my upbringing that I ultimately abandoned.
+
+Two factors contributed to this change. First, as a mathematics major, I was trained to think logically, examine assumptions critically, and follow evidence wherever it led. In retrospect, however, I may have taken those lessons too far. In mathematics, logic and abstraction are foundational, but human beings are more than rational minds. We have hearts, souls, experiences, and limitations. From my current perspective, reason alone cannot serve as the foundation for an entire worldview. As Christians, we believe that our reasoning faculties, like every other part of our nature, have been affected by the Fall. Looking back, I sometimes think I placed too much confidence in rationalism.
+
+The second influence was a number of professors who were openly hostile toward Christianity. Although I should have approached their arguments more critically, I viewed them as intelligent, accomplished, and worthy of respect. After all, they were university professors. As a young student, I was highly susceptible to their influence, and I gave their perspectives more weight than I should have.
