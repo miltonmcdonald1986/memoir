@@ -293,4 +293,18 @@ I immediately stopped pressing the issue. At that point, I did not know what to 
 
 ## Great Books of the Western World
 
-I read them.
+At this exact moment, God intervened, and of this I have no doubt. On that very day, during the same walk when we had that debate and Maria broke down crying, we passed the local library and noticed that a book sale was in progress. We stopped in to see what they had.
+
+I love books and, especially at that time, had a voracious appetite for reading. While browsing, I noticed a collection of books in a cardboard box in the corner. At first, it looked like a set of encyclopedias or something similar. But when I looked more closely, I saw the label: Great Books of the Western World.
+
+Now I was intrigued. I started looking through the volumes and reading the names of the authors: Homer, Plato, Aristotle, Euclid, Augustine, Aquinas, Dante, Chaucer, Shakespeare, Milton, Locke, Gibbon, and many more. I was blown away by the thought of owning and reading so many of the great works of Western civilization.
+
+But I was broke. I asked the librarian how much they cost because I hoped I might be able to buy one or two volumes from the set. I think she could see both my interest and my disappointment. She replied, “How about $20?”
+
+“Per book?” I asked.
+
+“No, $20 for the whole set.”
+
+My jaw dropped, but I immediately said yes. I left Maria at the library, ran home to get $20 and the car, and then drove back to pick up the books.
+
+I was excited. In my pride, I thought I was on my way to becoming a well-rounded gentleman who knew everything about the world. But God had very different plans for me, plans to bring me back to Him.
