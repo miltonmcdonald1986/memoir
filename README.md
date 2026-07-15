@@ -16,6 +16,7 @@
 - [Great Books of the Western World](#great-books-of-the-western-world)
 - [Augustine](#augustine)
 - [Owning My Faith](#owning-my-faith)
+- [Spinning My Wheels](#spinning-my-wheels)
 
 ## Introduction
 
@@ -392,3 +393,6 @@ Some nights were especially powerful. Men would openly confess their sins and st
 I often heard men say, "Thursday night is more important to me than Sunday morning." I don't know that I ever said those words aloud, but quietly, I felt the same way. That realization always struck me as strange. Wasn't Sunday, the Lord's Day, supposed to be the primary time when we gathered to worship God?
 
 I knew we praised Him in song. I knew we heard strong sermons about God and about growing in faith. Yet I never would have described what happened on Sunday mornings primarily as worship. Some people equate worship with singing, but I never saw it that way. I couldn't have clearly defined worship at the time, but I was certain it had to be more than singing songs and passively listening to a sermon.
+
+## Spinning My Wheels
+
