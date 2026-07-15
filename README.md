@@ -255,3 +255,11 @@ I found myself resisting this trend. I was already questioning some of the belie
 One day, while walking to class, I stopped at a Roman Catholic church in town and sat in the back during a daily Mass. There was a reverence to the service that I found attractive, though at times it also felt dry and unfamiliar. Still, something about it appealed to me. Before long, I was attending daily Mass as often as I could on my way to school.
 
 I took the idea seriously enough that I began imagining what my life might look like if I became Catholic. I even met with a priest to discuss the possibility. The meeting, however, did not go well. The priest seemed uninterested in my questions and gave me the impression that he did not particularly care whether I joined the Church or not. For the time being, I decided to remain where I was, but the possibility of becoming Catholic stayed in the back of my mind for years afterward.
+
+I started to realize that the “freedom” of the coffeehouse church was not exactly what I needed. That is not to say I needed a return to legalism. But there was almost an attitude that everything was acceptable. I know I attended church hungover multiple times, and other than a brief comment from the pastor, “Well, you know you shouldn’t do that,” there was never any expectation of boundaries, offering your body as a living sacrifice, or giving up the selfish desires and pleasures that led to my behavior.
+
+Each Sunday brought a positive and encouraging message. The problem was that I did not need a positive and encouraging message. In fact, I did not need a message at all. I needed to stand before God honestly, acknowledge the condition of my soul, pray for his grace and healing, repent, and turn away from those things.
+
+But most of the churches I attended did not talk about repentance as a daily death to the world, a choice that must be made. Instead, they seemed to describe it as a natural fruit of coming to know the love of Jesus in your heart. The approach was, “Trust him, and the fruit will start to show up.”
+
+I do not think it was all bad, but there was something incomplete, something missing. In my spiritual state at the time, I did not go looking for what that missing piece was. I was honestly happy in that judgment-free church. I was happy indulging my desires. Or at least I thought I was.
