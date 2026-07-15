@@ -15,6 +15,7 @@
 - [Deconstruction](#deconstruction)
 - [Great Books of the Western World](#great-books-of-the-western-world)
 - [Augustine](#augustine)
+- [Owning My Faith](#owning-my-faith)
 
 ## Introduction
 
@@ -353,3 +354,15 @@ As soon as he had read it, all doubt vanished from his mind. He resolved at once
 When I read this, I broke. I collapsed onto the floor of my bedroom and wept like never before. As I read about Augustine rushing to his mother to tell her the good news, I knew that the same thing was happening to me. I had chosen Christ again, truly, freely, and without reservation. I was never going back. Sharing this with my wife was deeply healing for both of us. I will always be thankful to God for bringing the Great Books, and especially Augustine's confessions, into my life.
 
 Glory to God!
+
+## Owning My Faith
+
+A lot changed in a short period of time. We moved back to Pennsylvania, I earned a master's degree in mathematics, we had two more children, bringing the total to four, and we began looking for a local church.
+
+We visited several Alliance and nondenominational churches, but nothing really stuck. One day, while attending a family event in my hometown, we ran into the pastor from the church where I had grown up. He was excited to see us after so many years, and after we talked for a while, he suggested that we come back and visit my old church. I was hesitant, but he assured me that we would be warmly welcomed. He also told me that I would not recognize the church anymore. I wasn't sure what he meant, but I was about to find out.
+
+When we visited, I saw the end result of the rise of contemporary worship that I discussed earlier in this story. The choir loft was gone. The pews were gone. The kneeling altar rail was gone. The pulpit was gone. In their place was a stage designed to support a worship band, complete with drums, amplifiers, and other equipment. It was surprising, but not entirely unexpected. Most of the churches I had attended over the previous ten years had undergone similar changes.
+
+The service was different from what I remembered. When I was a child, I would carry a brass candle lighter down the center aisle and light the candles at the front of the church. Those candles were nowhere to be seen. I think a few other elements were missing as well, such as a designated Scripture reading. The service seemed simplified, consisting of four modern worship songs, an elder's prayer, and a sermon.
+
+All in all, though, we enjoyed both the service and the people. It was wonderful to reconnect with friends we had not seen in years. We noticed that there were many families like ours, parents with young children. The Sunday school rooms and nursery were overflowing, which was definitely not what we had seen in the other churches we visited. We learned about the various small groups for adults and were invited to come back the following week.
