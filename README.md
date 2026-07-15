@@ -350,6 +350,6 @@ But he could not maintain this divided life. A man cannot serve two masters. In 
 
 As soon as he had read it, all doubt vanished from his mind. He resolved at once to abandon his old life and commit himself fully to Christ.
 
-When I read this, I broke. I collapsed onto the floor of my bedroom and wept like never before. As I read about Augustine rushing to his mother to tell her the good news, I knew that the same thing was happening to me. I had chosen Christ again, truly, freely, and without reservation. I was never going back.
+When I read this, I broke. I collapsed onto the floor of my bedroom and wept like never before. As I read about Augustine rushing to his mother to tell her the good news, I knew that the same thing was happening to me. I had chosen Christ again, truly, freely, and without reservation. I was never going back. Sharing this with my wife was deeply healing for both of us. I will always be thankful to God for bringing the Great Books, and especially Augustine's confessions, into my life.
 
 Glory to God!
