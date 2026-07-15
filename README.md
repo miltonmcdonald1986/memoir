@@ -366,3 +366,15 @@ When we visited, I saw the end result of the rise of contemporary worship that I
 The service was different from what I remembered. When I was a child, I would carry a brass candle lighter down the center aisle and light the candles at the front of the church. Those candles were nowhere to be seen. I think a few other elements were missing as well, such as a designated Scripture reading. The service seemed simplified, consisting of four modern worship songs, an elder's prayer, and a sermon.
 
 All in all, though, we enjoyed both the service and the people. It was wonderful to reconnect with friends we had not seen in years. We noticed that there were many families like ours, parents with young children. The Sunday school rooms and nursery were overflowing, which was definitely not what we had seen in the other churches we visited. We learned about the various small groups for adults and were invited to come back the following week.
+
+We decided to return and began looking for groups to get involved in. I joined the men's breakfast group, which met at a local restaurant on Saturday mornings to share a meal and discuss a book.
+
+The very first book we read almost made me leave the church immediately. The book was Nudge by Leonard Sweet, and to me it seemed incoherent, meaningless, and honestly not worth the few dollars I had paid for it. It struck me as the writing of someone living in the clouds, detached from reality. I eventually threw it in the trash.
+
+What really boggled my mind was that all the other men in the group loved the book. I didn't understand it. Was I really that far outside the mainstream? It all felt very strange. I showed the book to my wife, and she shared many of my concerns. We began to wonder whether we had made the right decision in settling into this church.
+
+To address those concerns, we invited the pastor and his wife to our home for dinner. They listened sympathetically and explained their perspective in a way that eased much of our anxiety. They also shared the story of how the church had navigated the rise of contemporary worship. The transition had caused division and difficulty, which was only natural. Many people left, and many new people came.
+
+What troubled me most was how many of the older members of the congregation had departed. Something about that did not seem right. It felt as though they had been left behind. I believed that people deserved to spend their lives practicing the faith in a familiar way.
+
+At the same time, I understood why the changes had been made. Attendance had been declining, and the financial consequences could have been severe. From that perspective, something needed to change. And the changes appeared to have worked. By the time we returned, the church was healthy, vibrant, and filled with young families.
