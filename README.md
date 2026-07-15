@@ -308,3 +308,15 @@ But I was broke. I asked the librarian how much they cost because I hoped I migh
 My jaw dropped, but I immediately said yes. I left Maria at the library, ran home to get $20 and the car, and then drove back to pick up the books.
 
 I was excited. In my pride, I thought I was on my way to becoming a well-rounded gentleman who knew everything about the world. But God had very different plans for me, plans to bring me back to Him.
+
+I began to read the Great Books. The Iliad, the Odyssey, ancient Greek plays, the dialogues of Plato, the histories of Herodotus and Thucydides, the biographies of great Greeks and Romans written by Plutarch, Euclid's Elements, and many more. I read for hours every day.
+
+I was stunned by a realization: the atheists were wrong. Ancient people were not ignorant sheepherders stumbling around in the dark, waiting for modern science to rescue humanity from superstition. These books were overflowing with brilliance. All the things I thought I valued were already there. Logic? Read Plato and Aristotle. Rationality? Read Euclid, Archimedes, and others. These people were not merely brilliant; they built the foundation upon which Western civilization itself was constructed. It was no wonder these works were called the Great Books of the Western World.
+
+But these books also forced me to confront atheism. None of the people I was reading were atheists. In fact, they all believed in God. More surprisingly, they seemed to believe in the same kind of God, whether they were Greek pagans, early Christians, or later writers. I knew the Greeks had a pagan pantheon, and I may be oversimplifying things, but it often seemed as though the gods of popular religion belonged to the masses. The great writers and thinkers of Greece and Rome frequently spoke of a single divine source, the ground of all being and life. They believed in a higher divine order that transcended the cultural religion of their time.
+
+It was also exciting to encounter what many have interpreted as foreshadowings of Christ in pagan works. One cannot help but notice the parallels between Christ and Virgil's Fourth Eclogue, written in 40 BC, which speaks of a virgin and a boy whose arrival will usher in a new golden age. Or Plato's description of the Just Man, who is rejected, scourged, and crucified despite his innocence.
+
+I took particular pleasure in reading Plutarch's Lives, which remains, in my opinion, one of the greatest books ever written. You can almost feel your soul healing as you read it. And then there were the great Christian writers: Augustine, Aquinas, Pascal, Isaac Newton, and many others.
+
+As I immersed myself in these books, I quickly realized that the atheism toward which I had been drifting was built on a pile of false assumptions.
