@@ -1,5 +1,7 @@
 # Why I Converted to Eastern Orthodox Christianity
 
+*Note: This is a living document, and as such will change and grow over time. I am currently working hard on it, so expect lots of changes. - Milton*
+
 ## Table of Contents
 - [Introduction](#introduction)
 - [Early Faith](#early-faith)
