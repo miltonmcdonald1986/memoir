@@ -377,4 +377,20 @@ To address those concerns, we invited the pastor and his wife to our home for di
 
 What troubled me most was how many of the older members of the congregation had departed. Something about that did not seem right. It felt as though they had been left behind. I believed that people deserved to spend their lives practicing the faith in a familiar way.
 
+But I can't deny the effectiveness of some of the ministries in the church. For exmaple, I found the men's ministry to be tremendously influential in my spiritual growth during my time at the church. In addition to the men's breakfasts, we had the opportunity each year to attend a men's retreat at the Alliance campground. When I was invited, I decided to go, even though I didn't really feel like I fit in. Many of the guys in our church were into guns and hunting, and the retreat included shooting competitions. That's never been my thing, but I went anyway. As it turned out, I managed to hit a few clay pigeons, which was fun.
+
+What truly impacted me, though, were the messages. The preacher delivered his sermons with a passion and intensity I had never experienced before. It wasn't a fire-and-brimstone message. It was a call to action. A challenge for us to step up, shake off our complacency, and become the men, husbands, and fathers God had called us to be.
+
+That message struck a nerve. Deep down, I knew I wasn't living up to the responsibility God had given me to lead my wife and children. I left that retreat energized and determined to be a better man. In fact, it was there that I decided I would remain at our church permanently.
+
+The retreat also inspired us to start a weekly men's group dedicated to prayer and the study of God's Word. We began meeting in my home, and before long people started showing up with food. That pattern stuck. For the next seven years, I spent nearly every Thursday evening with the men from our church, sharing meals, praying together, and studying Scripture.
+
+In the beginning, the group was truly transformative for me. Even after I felt that my personal growth had plateaued, it continued to provide stability in my life, serving as a bulwark against my own weaknesses and passions. It became a place where I could be refreshed, encouraged, and prepared to keep pressing forward in the Christian life.
+
+Some nights were especially powerful. Men would openly confess their sins and struggles, and the rest of us would gather around them in prayer, offering encouragement and standing with them in solidarity. After all, weren't we all wrestling with many of the same consequences of sin? Simply knowing that you are not alone can make an enormous difference. As Scripture says, "Iron sharpens iron."
+
+I often heard men say, "Thursday night is more important to me than Sunday morning." I don't know that I ever said those words aloud, but quietly, I felt the same way. That realization always struck me as strange. Wasn't Sunday, the Lord's Day, supposed to be the primary time when we gathered to worship God?
+
+I knew we praised Him in song. I knew we heard strong sermons about God and about growing in faith. Yet I never would have described what happened on Sunday mornings primarily as worship. Some people equate worship with singing, but I never saw it that way. I couldn't have clearly defined worship at the time, but I was certain it had to be more than singing songs and passively listening to a sermon.
+
 At the same time, I understood why the changes had been made. Attendance had been declining, and the financial consequences could have been severe. From that perspective, something needed to change. And the changes appeared to have worked. By the time we returned, the church was healthy, vibrant, and filled with young families.
