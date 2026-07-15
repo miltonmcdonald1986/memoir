@@ -320,3 +320,13 @@ It was also exciting to encounter what many have interpreted as foreshadowings o
 I took particular pleasure in reading Plutarch's Lives, which remains, in my opinion, one of the greatest books ever written. You can almost feel your soul healing as you read it. And then there were the great Christian writers: Augustine, Aquinas, Pascal, Isaac Newton, and many others.
 
 As I immersed myself in these books, I quickly realized that the atheism toward which I had been drifting was built on a pile of false assumptions.
+
+I started to reexamine atheism and atheist culture. They asserted that the God of the Bible was evil, that the Bible was full of contradictions, that it was all fairy tales, and that the world would be better off without religion. Some of those claims troubled me, especially the accusations about an evil God and biblical contradictions.
+
+Yet the pretentiousness of many of these people bothered me as well. And not just the Reddit crowd. Professors and intellectuals often seemed smug and self-satisfied, full of condescension and a sense of superiority. Was this what I was becoming? Was this really the kind of person I wanted to be?
+
+Their lives also seemed to reflect their worldview. In a world without God, there is no ultimate meaning, and everyone is free to do whatever they want. As a result, many of the people I encountered appeared self-centered, angry, consumed by lust, surrounded by conflict, and at times downright irrational. If this was the fruit of an atheist worldview, was it really what I wanted? I felt foolish for having fallen into the trap.
+
+Compared to the Great Books of the Western World and the intellectual inheritance our civilization has received from them, the atheistic worldview struck me as childish, like the angry ravings of people shaking their fists at a God they claimed did not exist. How can you hate something so intensely if you do not believe it exists? They also embraced positions that seemed to contradict their claims of rationality, with gender issues being the most obvious example in my mind.
+
+I realized that becoming an atheist would mean adopting a subculture that I found increasingly absurd. But the biggest nail in the coffin was this: I could not make myself stop believing in God. His existence seemed obvious to me. The beauty and glory of the natural world spoke of his love, intelligence, and creativity. At most, I could force myself into a kind of deism, but I could never remove him from my innermost being.
