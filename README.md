@@ -11,6 +11,7 @@
 - [Rise of Modern Worship Culture](#rise-of-modern-worship-culture)
 - [The Good That Shaped Me](#the-good-that-shaped-me)
 - [Deconstruction](#deconstruction)
+- [Great Books of the Western World](#great-books-of-the-western-world)
 
 ## Introduction
 
@@ -289,3 +290,7 @@ We started to debate, and God bless her, she tried so hard to defend the faith t
 I was stunned. I am not a heartless bastard, and instinctively I knew I was in the wrong. I had to think about what was more important to me: holding onto these abstract ideas or holding onto my marriage. Questions of religion, atheism, and philosophy do not exist only in the realm of the mind. They affect real people and real relationships every day.
 
 I immediately stopped pressing the issue. At that point, I did not know what to do, but I did know that I needed to pause.
+
+## Great Books of the Western World
+
+I read them.
