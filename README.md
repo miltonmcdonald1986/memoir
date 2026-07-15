@@ -277,3 +277,15 @@ Of course, there are people in the Catholic Church who are not genuinely interes
 Despite my interest in, and even longing for, Catholicism, it never gained any real traction in my life. There was always something that kept me from taking the step of entering the RCIA program and becoming Catholic. At the same time that I was drawn to it, there was also something that held me back, even leaving me somewhat repelled by it. The result was that I remained largely where I was, moving neither toward it nor away from it.
 
 Now that I am Orthodox and have spent more time studying these issues, I think I understand what was causing that hesitation, and I will discuss it later. At the time, however, it was simply an instinctive reluctance that kept me from converting.
+
+So as my relationship with Catholicism stagnated, my descent into atheism intensified. I was reading books, blogs, and memes (the power of memes in persuasion cannot be understated), almost to the point that it was becoming my whole personality. I was filled with pride, seeing myself as highly intelligent, logical, and rational, not an ignorant sheepherder like those religious people.
+
+There were several times when I almost declared my atheism publicly. I had my mouse hovering over the "Post" button on Facebook. But I was stopped by the emotional harm I suspected it would cause many of my family members and loved ones.
+
+There was one relationship, however, that was being seriously harmed by this spiritual "journey," and that was my marriage. As my faith unraveled, tension and pain in my marriage seemed to increase as well, which is not surprising. Our marriage was founded upon our belief in and love for God, so for one partner to suddenly declare that he no longer believed any of this God stuff was like taking a jackhammer to the foundation.
+
+We started to debate, and God bless her, she tried so hard to defend the faith to me. But I had been trained to analyze and refute arguments through my study of mathematics, and I would overwhelm her with responses and objections. Finally, one night while we were out on a walk debating, she broke down and wept right there on the sidewalk. She admitted that she could not defend against all of my objections, and she just cried.
+
+I was stunned. I am not a heartless bastard, and instinctively I knew I was in the wrong. I had to think about what was more important to me: holding onto these abstract ideas or holding onto my marriage. Questions of religion, atheism, and philosophy do not exist only in the realm of the mind. They affect real people and real relationships every day.
+
+I immediately stopped pressing the issue. At that point, I did not know what to do, but I did know that I needed to pause.
