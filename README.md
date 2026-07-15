@@ -263,3 +263,7 @@ Each Sunday brought a positive and encouraging message. The problem was that I d
 But most of the churches I attended did not talk about repentance as a daily death to the world, a choice that must be made. Instead, they seemed to describe it as a natural fruit of coming to know the love of Jesus in your heart. The approach was, “Trust him, and the fruit will start to show up.”
 
 I do not think it was all bad, but there was something incomplete, something missing. In my spiritual state at the time, I did not go looking for what that missing piece was. I was honestly happy in that judgment-free church. I was happy indulging my desires. Or at least I thought I was.
+
+I began to drift, and without any kind of spiritual map or rudder, I drifted toward atheism. For a newly graduated college student who wanted to view everything through a rational and naturalistic lens, it felt like a natural direction to take. I started reading atheist blogs, watching atheist videos, and immersing myself in atheist culture.
+
+On the surface, the arguments, along with the ridicule of Christianity and other religions, seemed compelling. Many of the beliefs I had grown up with had already fallen away. I have already mentioned young-earth creationism, but there were others I had discarded as well. As a result, I found myself drawn toward what seemed like the logical conclusion of shedding those beliefs: belief in nothing.
