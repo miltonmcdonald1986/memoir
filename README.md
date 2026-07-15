@@ -14,6 +14,7 @@
 - [The Good That Shaped Me](#the-good-that-shaped-me)
 - [Deconstruction](#deconstruction)
 - [Great Books of the Western World](#great-books-of-the-western-world)
+- [Augustine](#augustine)
 
 ## Introduction
 
@@ -332,6 +333,8 @@ Their lives also seemed to reflect their worldview. In a world without God, ther
 Compared to the Great Books of the Western World and the intellectual inheritance our civilization has received from them, the atheistic worldview struck me as childish, like the angry ravings of people shaking their fists at a God they claimed did not exist. How can you hate something so intensely if you do not believe it exists? They also embraced positions that seemed to contradict their claims of rationality, with gender issues being the most obvious example in my mind.
 
 I realized that becoming an atheist would mean adopting a subculture that I found increasingly absurd. But the biggest nail in the coffin was this: I could not make myself stop believing in God. His existence seemed obvious to me. The beauty and glory of the natural world spoke of his love, intelligence, and creativity. At most, I could force myself into a kind of deism, but I could never remove him from my innermost being.
+
+## Augustine
 
 Reading Augustine's Confessions marked the end of atheism in my life and the rediscovery of God in my inmost being.
 
