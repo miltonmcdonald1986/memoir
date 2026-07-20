@@ -423,3 +423,13 @@ None of these became the central focus of our churches, nor were they regularly 
 Looking back now, I understand the desire that drove so many of us. People genuinely want an authentic spiritual life. They want to know God, not merely know about Him. And when they cannot find a clear path within their own tradition, they often become willing to venture into unfamiliar territory in search of that deeper relationship.
 
 But unfamiliar territory can also be spiritually dangerous. Not everything that promises closeness to God actually leads to Him. In my own experience, and especially through some of the things I witnessed during my years in youth ministry, I came to see that sincere spiritual hunger can sometimes lead people into practices that are spiritually and physically harmful. As I share more stories from that period of my life, I think I will be vindicated in saying so.
+
+As time went on, I settled into my church home and began to get involved. At first it was simple things—helping out on projects, showing up where I could. A group of us from the church built wheelchair ramps for people who needed them, including one for my own father. I will always be grateful for the men who volunteered their time and labor to make that happen. I also helped in smaller ways: cooking breakfast on Easter Sunday, singing Christmas carols around the neighborhood, and pitching in wherever there was a need.
+
+But my deepest involvement began when I became the youth leader at my church.
+
+It started at camp that year, after a powerful ten days of revival. During the camp meeting, our youth group was all camped together in tents, and I felt myself forming a real attachment to them. We spent long hours talking, laughing, worshiping, and simply being together. By the end of the week, I realized I didn’t want those relationships to fade once camp was over. I could see that the youth genuinely wanted to grow in God but were struggling under the weight of everyday pressures—friends, social media, anxiety, and depression.
+
+I began to believe that maybe God wanted me to help them.
+
+I was already friends with the current youth leader, so near the end of camp I sat down with him and offered to come alongside him. He was relieved and grateful—he had been carrying the entire ministry alone. So that fall, at the start of the school year, I officially joined as the youth leader.
