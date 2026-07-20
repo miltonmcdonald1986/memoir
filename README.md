@@ -17,6 +17,7 @@
 - [Augustine](#augustine)
 - [Owning My Faith](#owning-my-faith)
 - [Spinning My Wheels](#spinning-my-wheels)
+- [Youth Leader](#youth-leader)
 
 ## Introduction
 
@@ -423,6 +424,8 @@ None of these became the central focus of our churches, nor were they regularly 
 Looking back now, I understand the desire that drove so many of us. People genuinely want an authentic spiritual life. They want to know God, not merely know about Him. And when they cannot find a clear path within their own tradition, they often become willing to venture into unfamiliar territory in search of that deeper relationship.
 
 But unfamiliar territory can also be spiritually dangerous. Not everything that promises closeness to God actually leads to Him. In my own experience, and especially through some of the things I witnessed during my years in youth ministry, I came to see that sincere spiritual hunger can sometimes lead people into practices that are spiritually and physically harmful. As I share more stories from that period of my life, I think I will be vindicated in saying so.
+
+## Youth Leader
 
 As time went on, I settled into my church home and began to get involved. At first it was simple things—helping out on projects, showing up where I could. A group of us from the church built wheelchair ramps for people who needed them, including one for my own father. I will always be grateful for the men who volunteered their time and labor to make that happen. I also helped in smaller ways: cooking breakfast on Easter Sunday, singing Christmas carols around the neighborhood, and pitching in wherever there was a need.
 
