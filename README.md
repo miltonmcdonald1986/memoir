@@ -436,3 +436,18 @@ It started at camp that year, after a powerful ten days of revival. During the c
 I began to believe that maybe God wanted me to help them.
 
 I was already friends with the current youth leader, so near the end of camp I sat down with him and offered to come alongside him. He was relieved and grateful—he had been carrying the entire ministry alone. So that fall, at the start of the school year, I officially joined as the youth leader.
+
+I spent the first year learning the ropes—helping wherever I could and sharing the teaching load. We handled both Sunday school and youth group, so that meant preparing two lessons every week. I organized a worship band for the group, remembering how much leading worship as a teen had shaped my own youth group experience. I put together slides with lyrics and lesson presentations, recruited volunteer families to provide evening meals, and began taking the youth on weekend retreats.
+
+Three times a year we would spend a weekend at various C&MA campgrounds for spiritual retreats. They were modeled after the same revival‑style experiences I had grown up with. Because the revivalist framework was all I knew, I continued it without much thought, assuming this was simply how youth ministry worked.
+
+I’ll never forget our very first retreat. Only a handful of students came, but on Saturday night something happened that I had never experienced before. The atmosphere in the room shifted—whether from the emotional intensity, the music, the fog machine, or a genuine desire in these students to encounter Christ. They began to chant the name of Jesus, just that one word, and the room felt electrified. Some students wept, others laughed, some shook. But unlike the darker undertones I had seen in certain Pentecostal or charismatic services, this didn’t feel frightening. It felt right.
+
+I became convinced that what I was witnessing was the presence of the Holy Spirit. I caught the hype and left that retreat on the highest spiritual mountaintop I had ever known. Whatever happened in that room that night felt like the way to know God.
+
+But you can probably predict what happened next. It was another ride on the rededication cycle. The slump hit hard—harder than any before—because I truly believed something different had happened at that retreat. Seeing no other way forward, I tried to recapture that moment by attending every retreat I could: the three youth retreats, the NEXT ministry retreat, the men’s retreat, and any special event within reach.
+
+My logical mind knew something was off. This didn’t seem like the way the earliest Christians lived. They couldn’t run off to retreats with pounding drums, lights, and emotional atmospheres to sustain their spiritual lives. And many people in my own church never attended retreats at all—yet they somehow remained steady. How were they being sustained?
+
+But my emotional heart was fully invested. I didn’t realize it yet, but I was nearing the end of my time on the rededication cycle. It was going to end either with a new way of knowing and experiencing God, or with my giving up on church altogether and becoming one of those people who goes out into the woods to find God.
+
