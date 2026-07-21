@@ -18,6 +18,7 @@
 - [Owning My Faith](#owning-my-faith)
 - [Spinning My Wheels](#spinning-my-wheels)
 - [Youth Leader](#youth-leader)
+- [Unraveling](#unraveling)
 
 ## Introduction
 
@@ -458,6 +459,8 @@ During the summers, we started hosting campfires at my house. The youth would co
 I looked into the history of the C&MA and discovered the idea of the “higher” or “deeper” life—a crisis moment in a Christian’s journey that supposedly marked the beginning of true sanctification. I studied the works of A.B. Simpson, who seemed so completely surrendered to Christ. I began to believe that surrender was the answer I had been looking for all along, and I even started teaching that concept to the kids. The phrase “let go and let God” captures this approach: the idea that we become passive vessels through which the Holy Spirit can work, once we offer full surrender to Christ.
 
 The only problem was that no one could answer one important question: How do I surrender to Him?
+
+## Unraveling 
 
 The third year of leading youth marked the beginning of the end for me. Several key events left me completely disillusioned with evangelical religion and searching for a way out. It really was the culmination of a lifelong spiritual struggle, and it all came to a head that year. It began normally enough—over thirty students were coming regularly, which strained my energy and made teaching harder, especially as more younger kids joined. Thankfully, a few additional leaders stepped in to help. But the vibe was shifting, and the rededication cycle wasn’t fueling me the way it used to. The highs weren’t as high. I started to wonder if I had become a kind of spiritual addict, always chasing the next emotional hit. Still, we made it through the fall as usual.
 
