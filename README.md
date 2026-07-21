@@ -19,6 +19,7 @@
 - [Spinning My Wheels](#spinning-my-wheels)
 - [Youth Leader](#youth-leader)
 - [Unraveling](#unraveling)
+- [Discovering the Ancient Faith](#discovering-the-ancient-faith)
 
 ## Introduction
 
@@ -525,4 +526,12 @@ I knew what the future could hold. This girl might look back someday and realize
 I pleaded with him not to do it. He didn’t listen. The next day, the baptism happened. Almost no one showed up. It was underwhelming. I wasn’t there, and neither was the pastor. And in that moment, I remember deciding with absolute clarity: I am finished with youth leading. Period. I didn’t care what happened next or even if they begged me to stay. I was done for good.
 
 In fact, I wasn’t just done with youth leading. I was done with spiritual chaos. I was done with “formation” that had no foundation in truth. I was done with the rededication cycle and the spiritual buffet. I was done being an evangelical. I began preparing myself and my family for a transition into a new faith—one I had been quietly researching, studying, and practicing at home for two years: Eastern Orthodox Christianity.
+
+## Discovering the Ancient Faith
+
+It all began with a YouTube video. I don’t remember what I was watching, but in the suggested videos there was one that caught my eye. It told the story of a group of punk rockers in the ’90s who had become disillusioned with the vanity of the scene and the futility of the lives they were living. One of them left his band and spent several years in a monastery. When he returned, he began publishing a magazine called Death to the World.
+
+The zine featured stories of ancient and modern saints, accounts of believers who suffered under persecution, reflections on the passions that shape our lives and how to fight them, and critiques of modernity, nihilism, and the spiritual suffering of youth in our age. I was immediately drawn in because it spoke directly to everything I had been feeling as a youth leader—watching young people who genuinely wanted to know God but were overwhelmed by the cares of this world and the pressures of the digital age. For the first time, I felt like someone understood what I was seeing and experiencing.
+
+I bought several issues and devoured them. They left me feeling spiritually edified, even revived. And beneath all of it was something that surprised me: the foundation of the Eastern Orthodox Church. I knew almost nothing about Orthodoxy, assuming it was just a Byzantine flavor of Catholicism. But Death to the World made me wonder if there was something more—something deeper—behind this tradition. I didn’t dive into the Church right away, but I did give it a quiet nod of respect every time I opened another issue.
 But the exhaustion wasn’t only physical. I no longer shared the evangelical worldview that shaped the ministry, and continuing to participate so deeply in something I no longer believed in was soul‑crushing. Still, I loved the kids, and I was genuinely committed to finishing out the year with them.
