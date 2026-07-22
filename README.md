@@ -560,3 +560,15 @@ We read the Old Testament as part of the plan, but we fail to see Christ in so m
 Through these lectures, I learned so much about the Trinity, and about how answering Christ’s question — “Who do you say that I am?” — is the beginning of truly knowing God. And I realized that the evangelical church often understands Christ in a deficient way.
 
 By this point, I was seriously beginning to understand that the Orthodox Church possessed a faith deeper, fuller, more coherent, and more true than anything I had ever known.
+
+I started buying books that caught my interest. The first was Divine Energy: The Orthodox Path to Christian Victory. In it, the author described his own conversion—from a leader in Campus Crusade for Christ into the Eastern Orthodox Church. He talked openly about his dissatisfaction with the familiar evangelical “keys” to transformation: read the Bible and pray, receive the baptism of the Holy Spirit, be a vocal witness for Christ, He will do it all through you. This hit me hard because those were the exact keys I had been trying for years, especially the Higher Life “let go and let God,” which had been my most recent attempt to let Him “do it all through me.”
+
+In the author’s view, the people who teach these keys are sincere but misguided, and the Orthodox tradition of unseen warfare represents the true path to Christian victory. By this point I had already read quite a bit about unseen warfare, so it was striking to see that this wasn’t just one author’s opinion—it was foundational to the Orthodox way of life.
+
+He explained the patristic understanding of temptation, with its six steps: provocation, momentary disturbance, coupling, assent, prepossession, and passion. He described the compulsive power of the passions—a teaching whose truth is obvious to anyone who has ever examined themselves. He wrote that “unless sin, with its passions, is recognized and dealt with, we are by default its bewildered slaves and consequently losers in spiritual conflict.” That line stayed with me.
+
+The latter half of the book laid out basic Orthodox theology: the Holy Trinity, the Incarnation of God the Word, the remission of sins, and a concept entirely new to me—theosis, in which we become partakers of the divine nature through God’s energies working in us. The illustration he used was a sword placed into a blacksmith’s fire: the sword’s essence never changes, yet it takes on the attributes of the fire—glowing red, radiating heat, able to cut and burn. In the same way, we never lose our human nature, but we become more and more like God by participating in Him and cooperating with His grace. God is the source of life and energy, and union with Him is what makes us truly alive.
+
+He ended the book with practical tools for waging spiritual warfare: prayer (corporate and personal, liturgical rather than purely spontaneous), fasting, almsgiving, virtuous living, remembrance of death, and more.
+
+This book rocked me. By the time I finished it, I realized I had found what I had been searching for all my life. I genuinely desired to embrace the Orthodox faith.
