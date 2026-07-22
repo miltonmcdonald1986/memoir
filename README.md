@@ -20,6 +20,7 @@
 - [Youth Leader](#youth-leader)
 - [Unraveling](#unraveling)
 - [Discovering the Ancient Faith](#discovering-the-ancient-faith)
+- [Difficulties](#difficulties)
 
 ## Introduction
 
@@ -579,4 +580,8 @@ My wife found herself intrigued as well. She began noticing the same things I ha
 
 But while I felt ready to convert, she did not. She reminded me of our commitments to our church—especially the youth group—and how our family had been rooted there for nearly ten years. Our kids knew no other church. Their friends were there. Our friends were there. Deep spiritual relationships had formed at the Alliance church. Her words gave me pause. I was not going to act without her consent and even her desire.
 
-So I prayed that, if it was God’s will for us to take this step, she would be the one to suggest it. And then I stopped talking about it for a while—even though, in my heart, I already felt Orthodox.
+So I prayed that, if it was God’s will for us to take this step, she would be the one to suggest it. And then I stopped talking about it for a while—even though, in my heart, I already felt Orthodox. I'm leaving out so much, it would take me an entire book to write all that I learned and came to love about Orthodoxy during this time. There was just a fullness to this faith that didn't exist elsewhere, an endless depth to it that I wanted to dive into. But there were some difficulties I had to process before we could enter the faith without reservation.
+
+## Difficulties
+
+Write about the difficulties here...
