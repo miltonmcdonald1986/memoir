@@ -21,6 +21,7 @@
 - [Unraveling](#unraveling)
 - [Discovering the Ancient Faith](#discovering-the-ancient-faith)
 - [Difficulties](#difficulties)
+- [Coming Home](#coming-home)
 
 ## Introduction
 
@@ -599,3 +600,7 @@ Another difficult issue for me to work through was the veneration of icons in th
 I also encountered the incarnational theology of images: the idea that Christ’s coming in the flesh fulfills the Second Commandment because God has now been seen and can be depicted. For me, this was enough to show that the commandment must be read in context. I had reached a point where I trusted the interpretation of the Church Fathers more than my own private reading of Scripture. Submitting my own ideas to the Church was humbling—especially since I tend to see myself as one of the smart people in the room—but it was freeing to rely on the Fathers who have handed down the faith for generations.
 
 And I won’t deny that I’ve learned to trust my instincts on these matters. When I look at icons of the martyrs, the saints, Christ, and the Theotokos, I recognize something true and good. You might argue that I am mistaken. Very well. But that does not change my perspective.
+
+There were other issues I had to deal with, and none of it was easy. So many of the biases built into me from my youth had to be overcome, but I finally came to the point where I recognized the truth and the fullness of the faith as experienced in Eastern Orthodoxy. And all this was happening in parallel to my soul-crushing experiences my third year of being a youth leader, all the charismatic insanity, the unauthorized baptism, the trip to Indianapolis, and more. I was now Orthodox in my heart, at least I hoped I was. The only problem was, I had never stepped foot inside an Orthodox Church, but that was about to change.
+
+## Coming Home
