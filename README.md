@@ -636,3 +636,20 @@ We met with our priest, and I had another weeping session as he comforted me. He
 It would take too much time to describe our experience of Lent and Holy Week, and this document is already long. Suffice it to say that I felt truly present through all the key moments—Palm Sunday, the Last Supper, the crucifixion and burial of Christ, singing “Let God Arise” on Holy Saturday. It felt like being present in those events in real time. The fasting was difficult; I learned a lot about myself and how irritable I can be when I don’t get my worldly desires met whenever I want. But it was done in community, and seeing the beauties of the Canon of Saint Andrew, the Presanctified Liturgies, the late‑night coffee hours, the grueling three‑hour services—sometimes twice a day—being done all together, I was immersing myself in the Orthodox mindset and giving God all the glory the entire time.
 
 Pascha was such a joy—shouting the resurrection of Christ at two in the morning, then feasting together afterward, eating all the delicious foods we had refrained from for a month and a half. Singing “The Angel Cried”—I swear all the icons in the room were smiling. I have come to see little miracles happen often during the Divine Liturgy, and they no longer surprise me, but the first time it happened while singing that hymn, I was amazed, like a child. So much beauty, truth, and goodness. Why was I found worthy to discover this faith?
+
+We finished our last few weeks of catechumenate and were received into the One, Holy, Catholic, and Apostolic Church through baptism and chrismation on Pentecost—the day we celebrate the coming of the Holy Spirit and the birth of the Church. It was an appropriate day for us to be sealed with the Spirit. The liturgy was long, almost three hours, but it passed in a blur. To come into the Church together, as a family, was my greatest joy.
+
+Taking my first communion, it literally felt like a bomb went off in my mouth as I partook of the Body and Blood of Christ for the first time. I stumbled from the chalice over to the side table to receive the blessed bread and wine; I didn’t even know where I was. So many other things happened on that great day of celebration, including a graduation party at my priest’s house that night. It was a full day of joy. It was the best day of my life.
+
+Since then, I have continued trying to adopt the mind of Christ as my emotions have cooled and I begin to participate in the steady rhythms of fasting, confession, communion, and worship. I praise God for everything He has done in my life.
+
+I will conclude this document by declaring the thanksgiving we sing after every Divine Liturgy:
+
+We have seen the True Light!
+We have received the Heavenly Spirit!
+We have found the True Faith!
+Worshiping the Undivided Trinity, Who has saved us.
+
+Let our mouths be filled with Thy praise, O Lord, that we may sing of Thy glory; for Thou hast made us worthy to partake of Thy Holy, Divine, Immortal, and Life‑creating Mysteries. Keep us in Thy holiness, that all the day we may meditate upon Thy righteousness.
+
+Alleluia! Alleluia! Alleluia!
