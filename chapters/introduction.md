@@ -12,7 +12,7 @@ This memoir is my attempt to explain that journey. Our decision to become Orthod
 
 <figure style="float:right">
   <img src="../assets/images/icons-theotokos-1.jpg" alt="Virgin of Vladimir"/>
-  <figcaption style="font-style: italic">Virgin of Vladimir</figcaption>
+  <figcaption style="font-style: italic">Icon of the Virgin of Vladimir. Although icons have been part of Christian worship for centuries, they are often regarded with trepidation or suspicion in evangelical circles.</figcaption>
 </figure>
 
 Eventually, the decision became clear to us, and we knew it was something we needed to do. Even so, I dreaded making it public. I knew it would affect relationships and alter the way many people saw us. Some might feel offended, believing that our departure was a criticism of their faith or worship. Others might worry about our salvation because of the theological differences involved. Those concerns weighed heavily on me because I am not someone who enjoys conflict or confrontation. If possible, I would rather endure discomfort than create tension. In this case, however, remaining silent was no longer an option. I had to bring the decision into the open and accept whatever consequences followed.
