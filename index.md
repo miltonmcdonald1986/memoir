@@ -15,3 +15,5 @@ A memoir of my journey from Evangelicalism to Eastern Orthodoxy.
 
 - [Introduction](/chapters/introduction.md)
 - [Early Faith](/chapters/early-faith.md)
+- [Prophecy Culture and Dispensationalism](/chapters/prophecy-culture-and-dispensationalism.md)
+- [Exclusivism](/chapters/exclusivism.md)
