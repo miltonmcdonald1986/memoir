@@ -17,7 +17,7 @@ From an early age, I was immersed in a revivalist form of Christianity. I loved 
 
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:545px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/camp-worship.jpg" alt="Camp Meeting"/>
-  <figcaption style="font-style: italic;overflow-wrap: break-word">A typical C&MA camp service combines passionate preaching, stirring music, altar calls, and public acts of commitment such as river baptisms. For many attendees, these emotionally powerful gatherings become defining moments in their spiritual journey.</figcaption>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">A typical C&MA camp service combines passionate preaching, stirring music, altar calls, and public acts of commitment such as river baptisms. For many attendees, including myself, these emotionally powerful gatherings become defining moments in their spiritual journey.</figcaption>
 </figure>
 
 The C&MA of my childhood felt somewhat old-fashioned by today's standards. Men commonly wore suits and ties to church, while women dressed modestly. Certain activities, such as dancing, playing cards, and drinking alcohol, were discouraged or forbidden in some circles. Although these standards were not observed universally and gradually faded during the 1980s and 1990s, my family—and especially my grandparents' generation—continued to follow them closely.
