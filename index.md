@@ -9,7 +9,7 @@ title: Home
 
 # Why I Converted to Eastern Orthodox Christianity
 
-A memoir of my journey from Evangelicalism to Eastern Orthodoxy.
+A memoir of my journey from Evangelicalism to Eastern Orthodoxy. You may begin by going to the [Introduction](/chapters/introduction.md) or browse the table of contents below.
 
 ## Contents
 
