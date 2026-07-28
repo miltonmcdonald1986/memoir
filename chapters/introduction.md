@@ -34,6 +34,6 @@ I am not trying to convince, persuade, or convert anyone. That is not my goal. I
 May God bless the endeavor.
 
 <div style="display: flex; justify-content: space-between; width: 100%;">
-  <a href="/memoir/index.md">← Home</a>
+  <a href="/memoir">← Home</a>
   <a href="/memoir/chapters/early-faith.md">Next Section: Early Faith →</a>
 </div>
