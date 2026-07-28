@@ -1,0 +1,63 @@
+---
+layout: page
+title: Discovering the Ancient Faith
+permalink: /discovering-the-ancient-faith/
+---
+
+It all began with a YouTube video. I don’t remember what I was watching, but in the suggested videos there was one that caught my eye. It told the story of a group of punk rockers in the ’90s who had become disillusioned with the vanity of the scene and the futility of the lives they were living. One of them left his band and spent several years in a monastery. When he returned, he began publishing a magazine called Death to the World.
+
+The zine featured stories of ancient and modern saints, accounts of believers who suffered under persecution, reflections on the passions that shape our lives and how to fight them, and critiques of modernity, nihilism, and the spiritual suffering of youth in our age. I was immediately drawn in because it spoke directly to everything I had been feeling as a youth leader—watching young people who genuinely wanted to know God but were overwhelmed by the cares of this world and the pressures of the digital age. For the first time, I felt like someone understood what I was seeing and experiencing.
+
+I bought several issues and devoured them. They left me feeling spiritually edified, even revived. And beneath all of it was something that surprised me: the foundation of the Eastern Orthodox Church. I knew almost nothing about Orthodoxy, assuming it was just a Byzantine flavor of Catholicism. But Death to the World made me wonder if there was something more—something deeper—behind this tradition. I didn’t dive into the Church right away, but I did give it a quiet nod of respect every time I opened another issue.
+
+I bought a book by the author of Death to the World titled Youth of the Apocalypse. The book addressed issues that are tearing apart the lives of young people, including suicide, addiction, violence, technology, and broken homes. It expanded on the themes covered in the magazine, but in greater depth. The book proposed a rebellion—“the last true rebellion”—as the response to these problems. That rebellion was death to the world and becoming alive to the next. As Father Seraphim Rose wrote, “Christ is the only exit from this world; all other exits—sexual rapture, political utopia, economic independence—are but blind alleys in which rot the corpses of the many who have tried them.”
+
+I began to realize that there was real truth in what I was reading. There was something in Eastern Orthodox Christianity that I had not encountered in modern church culture. Once again, I found myself giving a nod of respect to the Orthodox Church, and I started wanting to know more.
+
+I continued studying these things, diving into the tradition of unseen warfare — the ancient Christian understanding of spiritual combat taught by mystics, ascetics, theologians, and saints. I learned about the passions and the virtues, and about the concrete tactics for waging spiritual warfare: watchfulness, detachment, prayer, fasting, self‑examination, and confession. I began practicing these disciplines in a very rudimentary way, but even that small beginning made a difference. I finally felt like I was fighting back against the spiritual slumps built into the rededication cycle.
+
+Slowly, I realized that “surrender” wasn’t the answer I had been chasing. What I needed was to die to myself and be made alive in Christ. And I couldn’t help wondering why I had never heard any of this in the evangelical church.
+
+Once again, I found myself pleasantly surprised by the Eastern Orthodox Church. I had never encountered a church so rock‑solid, ancient, uncompromising, and wholly dedicated to the worship of the Holy Trinity. Modern ideas and cultural trends seemed irrelevant to it. And unlike the charismatic or pentecostal environments I had known, Orthodoxy carried a mystical depth without the darkness or emotional chaos. Its saints were men and women whose experience of God’s power was inseparable from the purification of their hearts and their cooperation with His transformative work. It wasn’t lightning‑bolt sanctification. It was real.
+
+My instincts recognized truth in what I was learning. I felt myself getting excited — genuinely excited — and I began digging deeper, faster.
+
+I started listening to theological lectures on an app called Patristic Nectar, including an eleven‑lecture series on the Holy Trinity by Father Thomas Hopko. I was blown away. Every talking point I had heard about Catholicism — and which I had ignorantly transferred to the Orthodox Church — was quietly refuted by the grace, intelligence, and love of God shining through these lectures.
+
+Very early on, I had a shocking realization: the Orthodox Church understood Scripture better than we evangelicals did. I could hardly believe it. I had always been taught that evangelicals were the people who knew the Bible best. We sang songs about the Bible. We had Bible quizzing, Bible memorization, Bible School, Bible studies, Bible colleges — everything revolved around Scripture. Yet somehow, the Orthodox teachers were opening the Scriptures in ways I had never encountered.
+
+I began to understand why. Orthodox teachers are not afraid or ashamed to interpret Scripture through the lens of the Fathers of the Church. Because of that, Scripture is understood in context — not as a collection of isolated verses, but as a unified whole whose center is Jesus Christ. As one Orthodox teacher put it, everything is about Christ. Christ is in every Psalm. He is everywhere in the Old Testament. It all points to Him.
+
+In the evangelical church, we have been cut off from the life and legacy of the One, Holy, Catholic, and Apostolic Church — from its saints, its fathers, its worship, its sacramental life. We encounter the Bible as an isolated book, detached from any living tradition. We often quote‑mine Scripture, pulling verses out of context and gluing them together to form our theologies. This is how false teachings like dispensationalism arise. We rarely bother to look at how the earliest Christians lived out their faith, and we assume that if the Bible does not give explicit instructions for something, it must be unnecessary or forbidden. We claim the Bible is the only rule of faith and practice, yet we read it while unconsciously inserting our own personal opinions. But why should my private interpretation outweigh the consensus of the Holy Fathers?
+
+We read the Old Testament as part of the plan, but we fail to see Christ in so many places. I never understood so many passages in the Old Testament and Psalms until I entered a tradition shaped by the Eucharist, liturgical worship, and the conviction that Christ is the fulfillment of all the Law and the Prophets. Evangelicals often see the word fulfillment and think it means “done away with,” but I began to see that fulfillment means perfection — the full reality of what the Law and Prophets displayed only in shadow.
+
+Through these lectures, I learned so much about the Trinity, and about how answering Christ’s question — “Who do you say that I am?” — is the beginning of truly knowing God. And I realized that the evangelical church often understands Christ in a deficient way.
+
+By this point, I was seriously beginning to understand that the Orthodox Church possessed a faith deeper, fuller, more coherent, and more true than anything I had ever known.
+
+I started buying books that caught my interest. The first was Divine Energy: The Orthodox Path to Christian Victory. In it, the author described his own conversion—from a leader in Campus Crusade for Christ into the Eastern Orthodox Church. He talked openly about his dissatisfaction with the familiar evangelical “keys” to transformation: read the Bible and pray, receive the baptism of the Holy Spirit, be a vocal witness for Christ, He will do it all through you. This hit me hard because those were the exact keys I had been trying for years, especially the Higher Life “let go and let God,” which had been my most recent attempt to let Him “do it all through me.”
+
+In the author’s view, the people who teach these keys are sincere but misguided, and the Orthodox tradition of unseen warfare represents the true path to Christian victory. By this point I had already read quite a bit about unseen warfare, so it was striking to see that this wasn’t just one author’s opinion—it was foundational to the Orthodox way of life.
+
+He explained the patristic understanding of temptation, with its six steps: provocation, momentary disturbance, coupling, assent, prepossession, and passion. He described the compulsive power of the passions—a teaching whose truth is obvious to anyone who has ever examined themselves. He wrote that “unless sin, with its passions, is recognized and dealt with, we are by default its bewildered slaves and consequently losers in spiritual conflict.” That line stayed with me.
+
+The latter half of the book laid out basic Orthodox theology: the Holy Trinity, the Incarnation of God the Word, the remission of sins, and a concept entirely new to me—theosis, in which we become partakers of the divine nature through God’s energies working in us. The illustration he used was a sword placed into a blacksmith’s fire: the sword’s essence never changes, yet it takes on the attributes of the fire—glowing red, radiating heat, able to cut and burn. In the same way, we never lose our human nature, but we become more and more like God by participating in Him and cooperating with His grace. God is the source of life and energy, and union with Him is what makes us truly alive.
+
+He ended the book with practical tools for waging spiritual warfare: prayer (corporate and personal, liturgical rather than purely spontaneous), fasting, almsgiving, virtuous living, remembrance of death, and more.
+
+This book rocked me. By the time I finished it, I realized I had found what I had been searching for all my life. I genuinely desired to embrace the Orthodox faith.
+
+For the next two years I devoured everything I could about this faith, searching for any reason not to join it. I bought prayer books and began using them. I listened to podcasts, watched lectures, and absorbed whatever I could find. I started sharing these things with my wife. We even turned it into a kind of date: we’d grab a drink, drive around, and listen to Patristic Nectar lectures or podcasts like Orthodoxy and Heterodoxy, which offered an Orthodox critique of Roman Catholicism and Protestantism. It was the first time I realized that Protestantism, often unknowingly, embraces certain ideas that were condemned as heresies by ecumenical councils over a thousand years ago. Detached from history and the continuity of the Church, many Protestants were reading the Bible in a vacuum and arriving at conclusions they might have avoided had they been tethered to the ancient tradition.
+
+My wife found herself intrigued as well. She began noticing the same things I had: the iron‑solid Orthodox understanding of Scripture, the refusal to compromise the faith for cultural trends, the Orthodox vision of husband, wife, and family, and more. It brought us closer together and was already beginning to transform us. We were recognizing the passions in our own lives and learning to look more compassionately at others, realizing they were struggling with the same passions we were—and that judgment had no place in that awareness.
+
+But while I felt ready to convert, she did not. She reminded me of our commitments to our church—especially the youth group—and how our family had been rooted there for nearly ten years. Our kids knew no other church. Their friends were there. Our friends were there. Deep spiritual relationships had formed at the Alliance church. Her words gave me pause. I was not going to act without her consent and even her desire.
+
+So I prayed that, if it was God’s will for us to take this step, she would be the one to suggest it. And then I stopped talking about it for a while—even though, in my heart, I already felt Orthodox. I'm leaving out so much, it would take me an entire book to write all that I learned and came to love about Orthodoxy during this time. There was just a fullness to this faith that didn't exist elsewhere, an endless depth to it that I wanted to dive into. But there were some difficulties I had to process before we could enter the faith without reservation.
+
+<div style="display: flex; justify-content: space-between; width: 100%;">
+  <a href="/memoir/unraveling">← Previous Section: Unraveling</a>
+  <a href="/memoir">Home</a>
+  <a href="/memoir/difficulties">Next Section: Difficulties →</a>
+</div>
