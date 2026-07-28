@@ -2,3 +2,6 @@ title: Why I Converted to Eastern Orthodox Christianity
 description: A memoir of my journey from Evangelicalism to Eastern Orthodoxy
 theme: minima
 baseurl: "/memoir"
+
+header_pages:
+  - index.md
