@@ -25,5 +25,5 @@ I’ve come to understand that assurance is mostly a theological tool that encou
 <div style="display: flex; justify-content: space-between; width: 100%;">
   <a href="/memoir/exclusivism">← Previous Section: Exclusivism</a>
   <a href="/memoir">Home</a>
-  <a href="/memoir/legalism.html">Next Section: Legalism →</a>
+  <a href="/memoir/legalism">Next Section: Legalism →</a>
 </div>
