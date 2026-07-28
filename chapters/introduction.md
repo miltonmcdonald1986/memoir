@@ -35,5 +35,5 @@ May God bless the endeavor.
 
 <div style="display: flex; justify-content: space-between; width: 100%;">
   <a href="/memoir">← Home</a>
-  <a href="/memoir/chapters/early-faith.md">Next Section: Early Faith →</a>
+  <a href="/memoir/chapters/early-faith.html">Next Section: Early Faith →</a>
 </div>
