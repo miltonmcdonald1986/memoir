@@ -6,7 +6,10 @@ permalink: /early-faith/
 
 I grew up in the Christian and Missionary Alliance from the time I was a baby. Because my family did not always have reliable transportation, we often bounced between two different C&MA churches depending on who could give us a ride. Much of our week revolved around church activities, and we relied on others to get us there whenever services or events were taking place.
 
-<img align="right" width="200" src="../assets/images/christian-and-missionary-alliance-logo.jpg">
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:1108px">
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/christian-and-missionary-alliance-logo.jpg" alt="Logo of the Christian and Missionary Alliance"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">The Christian and Missionary Alliance was founded in 1887 by A.B. Simpson with the goal of fulfilling the Great Commision to go and make disciples of all nations.</figcaption>
+</figure>
 
 I also attended a C&MA elementary school, where Bible classes were a regular part of the curriculum. During the summer, I attended a C&MA Bible camp. My grandparents owned a cottage on the campground, and many of my childhood memories are connected to that place. During Family Camp, all of us cousins would sleep together on the back porch during the hot summer nights. We attended children's programs and youth services, often gathering for meetings twice a day throughout the ten days of camp.
 
