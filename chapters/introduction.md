@@ -27,7 +27,7 @@ I encountered a variety of assumptions about Orthodoxy during conversations with
 
 What became clear to me was that most people misunderstood the reasons for my conversion. They often reduced my decision to a theological disagreement, a preference for traditional worship, or an attraction to the aesthetics of Orthodoxy—the "smells and bells." Yet none of those explanations reached the heart of the matter. 
 
-<figure style="display: block; margin-left: auto; margin-right: auto; text-align: center;">
+<figure style="text-align: center;">
   <img src="../assets/images/censer.jpg" alt="Censer">
   <figcaption style="font-style: italic;">
     For from the rising of the sun, even to its going down, My name shall be great among the Gentiles; In every place incense shall be offered to My name, And a pure offering; For My name shall be great among the nations, Says the Lord of hosts. Malachi 1:11 (NKJV)
