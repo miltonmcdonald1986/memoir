@@ -24,7 +24,7 @@ A memoir of my journey from Evangelicalism to Eastern Orthodoxy. You may begin b
 - [The Good That Shaped Me](/memoir/the-good-that-shaped-me)
 - [Deconstruction](/memoir/deconstruction)
 - [Great Books of the Western World](/memoir/great-books-of-the-western-world)
-- [Augustine](/memoir/augustine)
+- [Augustine](/memoir/saint-augustine)
 - [Owning My Faith](/memoir/owning-my-faith)
 - [Spinning My Wheels](/memoir/spinning-my-wheels)
 - [Youth Leader](/memoir/youth-leader)
