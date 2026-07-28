@@ -5,6 +5,8 @@ title: Early Faith
 
 I grew up in the Christian and Missionary Alliance from the time I was a baby. Because my family did not always have reliable transportation, we often bounced between two different C&MA churches depending on who could give us a ride. Much of our week revolved around church activities, and we relied on others to get us there whenever services or events were taking place.
 
+<img align="right" width="200" src="assets/images/christian-and-missionary-alliance-logo.jpg">
+
 I also attended a C&MA elementary school, where Bible classes were a regular part of the curriculum. During the summer, I attended a C&MA Bible camp. My grandparents owned a cottage on the campground, and many of my childhood memories are connected to that place. During Family Camp, all of us cousins would sleep together on the back porch during the hot summer nights. We attended children's programs and youth services, often gathering for meetings twice a day throughout the ten days of camp.
 
 From an early age, I was immersed in a revivalist form of Christianity. I loved the camp meetings, the services, and the sense of spiritual excitement that surrounded them. In every direction, my world was shaped by this tradition. Looking back, I would say that I was fully immersed in the phronema of the Christian and Missionary Alliance, even though no one would have used that word at the time.
