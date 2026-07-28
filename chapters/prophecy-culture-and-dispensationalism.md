@@ -29,5 +29,5 @@ I remember sitting in study hall in high school with a Bible by myself, deciding
 
 <div style="display: flex; justify-content: space-between; width: 100%;">
   <a href="/memoir/chapters/early-faith.html">← Previous Section: Early Faith</a>
-  <a href="/memoir/chapters/prophecy-culture-and-dispensationalism.html">Next Section: Exclusivism →</a>
+  <a href="/memoir/chapters/exclusivism.html">Next Section: Exclusivism →</a>
 </div>
