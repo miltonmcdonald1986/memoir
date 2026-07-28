@@ -1,6 +1,7 @@
 ---
 layout: page
 title: Prophecy Culture and Dispensationalism
+permalink: /prophecy-culture-and-dispensationalism/
 ---
 
 Dispensationalism is an all‑encompassing way of viewing history, where the entire timeline is already mapped out and you’re simply living at a point on that chart—always on the verge of prophecy being fulfilled. Current events are interpreted as signs pointing toward the end times. This framework includes the idea of a rapture, a secret return of Christ that happens before the tribulation begins. It teaches that Israel plays a critical role in the fulfillment of prophecy and that Israel and the Church are distinct entities in God’s plan. It also comes with a whole vocabulary of end‑times concepts—millennium, tribulation, antichrist, mark of the beast—familiar to anyone who grew up with books like Left Behind, The Late Great Planet Earth, or even the Scofield Reference Bible.
@@ -28,6 +29,7 @@ These verses were interpreted for me through the guidance and authority of peopl
 I remember sitting in study hall in high school with a Bible by myself, deciding that I was going to figure out the “correct” Christianity. I quickly realized this would be absolutely impossible and came to the disheartening conclusion that maybe there was no true Christianity at all, and that we were all just trying to figure it out because God had decided not to tell us. Now, as an Eastern Orthodox Christian, I have chosen to submit my rational mind—at least in terms of interpreting Scripture—to the Church Fathers and the faith of the apostles that has been handed down. Of course, I understood none of this back then. All I knew was that there was a tension in my heart because the rapture simply didn’t make sense when I read the Bible.
 
 <div style="display: flex; justify-content: space-between; width: 100%;">
-  <a href="/memoir/chapters/early-faith.html">← Previous Section: Early Faith</a>
-  <a href="/memoir/chapters/exclusivism.html">Next Section: Exclusivism →</a>
+  <a href="/memoir/early-faith">← Previous Section: Early Faith</a>
+  <a href="/memoir">Home</a>
+  <a href="/memoir/exclusivism">Next Section: Exclusivism →</a>
 </div>
