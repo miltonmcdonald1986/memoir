@@ -27,11 +27,9 @@ I encountered a variety of assumptions about Orthodoxy during conversations with
 
 What became clear to me was that most people misunderstood the reasons for my conversion. They often reduced my decision to a theological disagreement, a preference for traditional worship, or an attraction to the aesthetics of Orthodoxy—the "smells and bells." Yet none of those explanations reached the heart of the matter. 
 
-<figure style="text-align: center;">
-  <img src="../assets/images/censer.jpg" alt="Censer">
-  <figcaption style="font-style: italic;">
-    For from the rising of the sun, even to its going down, My name shall be great among the Gentiles; In every place incense shall be offered to My name, And a pure offering; For My name shall be great among the nations, Says the Lord of hosts. Malachi 1:11 (NKJV)
-  </figcaption>
+<figure>
+  <img src="../assets/images/censer.jpg" alt="Censer"/>
+  <figcaption style="font-style: italic;">For from the rising of the sun, even to its going down, My name shall be great among the Gentiles; In every place incense shall be offered to My name, And a pure offering; For My name shall be great among the nations, Says the Lord of hosts. Malachi 1:11 (NKJV)</figcaption>
 </figure>
 
 One conversation with my pastor illustrated how easily discussions about my conversion became focused on theology rather than the deeper spiritual journey I was trying to communicate.. When I told him that our family would be converting to Eastern Orthodoxy, he responded with kindness, concern, and trust in God's guidance. He assured me that he trusted the Holy Spirit to lead us, that he would be praying for us, and that we would always be welcome back into our church family if we changed our minds. I was grateful for his response.
