@@ -32,3 +32,8 @@ So in this memoir I will simply to tell my story from the beginning. I cannot th
 I am not trying to convince, persuade, or convert anyone. That is not my goal. I cannot make you see what I saw or feel what I felt, nor can I make you arrive at the same conclusions that I did. All I can do is tell the truth about my journey and allow you to reach your own conclusions.
 
 May God bless the endeavor.
+
+<div style="display: flex; justify-content: space-between;">
+  <a href="/index.md">← Home</a>
+  <a href="/early-faith.md">Next Section: Early Faith →</a>
+</div>
