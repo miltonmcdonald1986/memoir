@@ -10,9 +10,9 @@ For that reason, our departure came as a surprise to many people. Some reached o
 
 This memoir is my attempt to explain that journey. Our decision to become Orthodox Christians was not made impulsively. Rather, it was the culmination of a lifelong search, especially during the two or three years leading up to our conversion. It grew out of a deeper study of Church history, both Orthodox history and the history of my own tradition, evangelical Protestantism, particularly the Christian and Missionary Alliance. It also grew out of my increasing suspicion that what we were doing on Sundays did not really feel like Church to me. It was hard for me to imagine that early Christians could have walked into our worship service and felt at home. Negative experiences with charismatic excesses, spirituality without clear boundaries, and competing interpretations of the Bible also contributed to that conviction.
 
-<figure style="float:right;width:min-content">
-  <img src="../assets/images/icons-theotokos-1.jpg" alt="Virgin of Vladimir" width="460"/>
-  <figcaption style="font-style: italic">Icon of the Virgin of Vladimir. Icons are one of many historic Christian practices that largely disappeared from Protestant life, and as a result they are often viewed with a certain degree of trepidation or suspicion by evangelicals.</figcaption>
+<figure style="float:right">
+  <img src="../assets/images/icons-theotokos-1.jpg" alt="Virgin of Vladimir"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">Icon of the Virgin of Vladimir. Icons are one of many historic Christian practices that largely disappeared from Protestant life, and as a result they are often viewed with a certain degree of trepidation or suspicion by evangelicals.</figcaption>
 </figure>
 
 Eventually, the decision became clear to us, and we knew it was something we needed to do. Even so, I dreaded making it public. I knew it would affect relationships and alter the way many people saw us. Some might feel offended, believing that our departure was a criticism of their faith or worship. Others might worry about our salvation because of the theological differences involved. Those concerns weighed heavily on me because I am not someone who enjoys conflict or confrontation. If possible, I would rather endure discomfort than create tension. In this case, however, remaining silent was no longer an option. I had to bring the decision into the open and accept whatever consequences followed.
