@@ -33,7 +33,7 @@ I am not trying to convince, persuade, or convert anyone. That is not my goal. I
 
 May God bless the endeavor.
 
-<div style="display: flex; justify-content: space-between;">
+<div style="display: flex; justify-content: space-between; width: 100%;">
   <a href="/index.md">← Home</a>
   <a href="/early-faith.md">Next Section: Early Faith →</a>
 </div>
