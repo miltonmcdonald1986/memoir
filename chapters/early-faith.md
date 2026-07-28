@@ -56,3 +56,8 @@ Looking back, that experience was the first in a series of moments that another 
 Although I failed many times afterward and would experience similar moments again in the years to come, I still view that retreat as a significant moment in my life. It marked a sincere commitment to Christ and remains one of the defining spiritual experiences of my youth.
 
 I’ll return to that moment in my life shortly, but first I need to pause and explain the religious framework in which I was spiritually formed. There are a few elements that uniquely shaped my situation and the kind of Christianity I inherited. The first of these is prophecy culture and dispensationalism.
+
+<div style="display: flex; justify-content: space-between; width: 100%;">
+  <a href="/memoir/chapters/introduction.html">← Previous Section: Introduction</a>
+  <a href="/memoir/chapters/prophecy-culture-and-dispensationalism.html">Next Section: Prophecy Culture and Dispensationalism →</a>
+</div>
