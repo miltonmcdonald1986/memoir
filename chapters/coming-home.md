@@ -50,6 +50,8 @@ Let our mouths be filled with Thy praise, O Lord, that we may sing of Thy glory;
 
 Alleluia! Alleluia! Alleluia!
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GhqLxGZgHR0?si=bDdSbnUeOBff8RL1" title="The Beaufy of American Orthodoxy" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 <div style="display: flex; justify-content: space-between; width: 100%;">
   <a href="/memoir/difficulties">← Previous Section: Difficulties</a>
   <a href="/memoir">Home</a>
