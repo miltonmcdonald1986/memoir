@@ -14,3 +14,4 @@ A memoir of my journey from Evangelicalism to Eastern Orthodoxy.
 ## Contents
 
 - [Introduction](/chapters/introduction.md)
+- [Early Faith](/chapters/early-faith.md)
