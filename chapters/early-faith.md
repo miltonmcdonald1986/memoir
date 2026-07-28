@@ -15,6 +15,11 @@ I also attended a C&MA elementary school, where Bible classes were a regular par
 
 From an early age, I was immersed in a revivalist form of Christianity. I loved the camp meetings, the services, and the sense of spiritual excitement that surrounded them. In every direction, my world was shaped by this tradition. Looking back, I would say that I was fully immersed in the phronema of the Christian and Missionary Alliance, even though no one would have used that word at the time.
 
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:545px">
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/camp-worship.jpg" alt="Camp Meeting"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">A typical C&MA camp service combines passionate preaching, stirring music, altar calls, and public acts of commitment such as river baptisms. For many attendees, these emotionally powerful gatherings become defining moments in their spiritual journey.</figcaption>
+</figure>
+
 The C&MA of my childhood felt somewhat old-fashioned by today's standards. Men commonly wore suits and ties to church, while women dressed modestly. Certain activities, such as dancing, playing cards, and drinking alcohol, were discouraged or forbidden in some circles. Although these standards were not observed universally and gradually faded during the 1980s and 1990s, my family—and especially my grandparents' generation—continued to follow them closely.
 
 As I look back, I would describe my religious upbringing as an expression of traditional American Protestantism shaped by church life, revival meetings, camp meetings, and Family Camp. These influences formed the background of my childhood and played a significant role in shaping my understanding of the Christian faith.
