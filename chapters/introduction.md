@@ -27,10 +27,7 @@ What became clear to me was that most people misunderstood the reasons for my co
 
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:400px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/censer.jpg" alt="Censer"/>
-  <figcaption style="font-style: italic;">For from the rising of the sun, even to its going down, My name shall be great among the Gentiles; In every place incense shall be offered to My name, And a pure offering; For My name shall be great among the nations, Says the Lord of hosts. Malachi 1:11 (NKJV).
-    <br>
-    <br>
-    Orthodox Christians are frequently caricatured as being enamored with the “smells and bells” of liturgical worship. Yet I was surprised to discover that many of these practices, including the use of incense, are firmly grounded in Scripture and have been part of Christian worship for centuries.</figcaption>
+  <figcaption style="font-style: italic;">For from the rising of the sun, even to its going down, My name shall be great among the Gentiles; In every place incense shall be offered to My name, And a pure offering; For My name shall be great among the nations, Says the Lord of hosts. Malachi 1:11 (NKJV). Orthodox Christians are frequently caricatured as being enamored with the “smells and bells” of liturgical worship. Yet I was surprised to discover that many of these practices, including the use of incense, are firmly grounded in Scripture and have been part of Christian worship for centuries.</figcaption>
 </figure>
 
 One conversation with my pastor illustrated how easily discussions about my conversion became focused on theology rather than the deeper spiritual journey I was trying to communicate.. When I told him that our family would be converting to Eastern Orthodoxy, he responded with kindness, concern, and trust in God's guidance. He assured me that he trusted the Holy Spirit to lead us, that he would be praying for us, and that we would always be welcome back into our church family if we changed our minds. I was grateful for his response.
