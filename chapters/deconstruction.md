@@ -4,7 +4,7 @@ title: Deconstruction
 permalink: /deconstruction/
 ---
 
-  I mentioned earlier how Young Earth Creationism (YEC) functioned as a kind of litmus test for faith in the environment where I was raised. When I entered college, I was unprepared to discover that this perspective was actually part of a particular American Christian subculture and that most Christians around the world did not share it. It became one of the first beliefs from my upbringing that I ultimately abandoned.
+I mentioned earlier how Young Earth Creationism (YEC) functioned as a kind of litmus test for faith in the environment where I was raised. When I entered college, I was unprepared to discover that this perspective was actually part of a particular American Christian subculture and that most Christians around the world did not share it. It became one of the first beliefs from my upbringing that I ultimately abandoned.
 
 Two factors contributed to this change. First, as a mathematics major, I was trained to think logically, examine assumptions critically, and follow evidence wherever it led. In retrospect, however, I may have taken those lessons too far. In mathematics, logic and abstraction are foundational, but human beings are more than rational minds. We have hearts, souls, experiences, and limitations. From my current perspective, reason alone cannot serve as the foundation for an entire worldview. As Christians, we believe that our reasoning faculties, like every other part of our nature, have been affected by the Fall. Looking back, I sometimes think I placed too much confidence in rationalism.
 
