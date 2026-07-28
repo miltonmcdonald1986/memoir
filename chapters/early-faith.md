@@ -1,6 +1,7 @@
 ---
 layout: page
 title: Early Faith
+permalink: /early-faith/
 ---
 
 I grew up in the Christian and Missionary Alliance from the time I was a baby. Because my family did not always have reliable transportation, we often bounced between two different C&MA churches depending on who could give us a ride. Much of our week revolved around church activities, and we relied on others to get us there whenever services or events were taking place.
@@ -60,6 +61,6 @@ Although I failed many times afterward and would experience similar moments agai
 I’ll return to that moment in my life shortly, but first I need to pause and explain the religious framework in which I was spiritually formed. There are a few elements that uniquely shaped my situation and the kind of Christianity I inherited. The first of these is prophecy culture and dispensationalism.
 
 <div style="display: flex; justify-content: space-between; width: 100%;">
-  <a href="/memoir/chapters/introduction.html">← Previous Section: Introduction</a>
-  <a href="/memoir/chapters/prophecy-culture-and-dispensationalism.html">Next Section: Prophecy Culture and Dispensationalism →</a>
+  <a href="/memoir/introduction">← Previous Section: Introduction</a>
+  <a href="/memoir/prophecy-culture-and-dispensationalism">Next Section: Prophecy Culture and Dispensationalism →</a>
 </div>
