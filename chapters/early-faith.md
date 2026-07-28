@@ -62,5 +62,6 @@ I’ll return to that moment in my life shortly, but first I need to pause and e
 
 <div style="display: flex; justify-content: space-between; width: 100%;">
   <a href="/memoir/introduction">← Previous Section: Introduction</a>
+  <a href="/memoir">Home</a>
   <a href="/memoir/prophecy-culture-and-dispensationalism">Next Section: Prophecy Culture and Dispensationalism →</a>
 </div>
