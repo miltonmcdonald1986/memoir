@@ -24,9 +24,9 @@ The C&MA of my childhood felt somewhat old-fashioned by today's standards. Men c
 
 It was a world saturated with Scripture and church culture. We sang songs about the Bible (The B-I-B-L-E, yes, that's the book for me!), memorized verses, practiced "sword drills" (a game to see how quickly someone could locate a Bible passage), participated in Bible quizzing, and attended Sunday School, Vacation Bible School, and Missions Conferences. Some of my earliest memories are tied to those activities. It was a wonderful environment in which to be a child.
 
-STOPPED MY EDITING HERE!!!
+Missions Conferences were another important part of church life. Because the Christian and Missionary Alliance placed such a strong emphasis on missions, these events were always well attended. Missionaries would visit and share stories about their work around the world. Their presentations often included remarkable accounts of how God provided for a need or protected them in dangerous situations.
 
-Missions Conferences were another important part of church life. Because the Christian and Missionary Alliance placed such a strong emphasis on missions, these events were always well attended. Missionaries would visit and tell stories about their work around the world. They would bring clothing, artifacts, and photographs from places many of us had never imagined visiting. For a child growing up in rural Pennsylvania, those presentations were fascinating. Many of us dreamed of becoming missionaries ourselves, or at least admired those who did.
+They brought clothing, artifacts, and photographs from places many of us had never imagined visiting, and they would often dress in traditional local attire. Sometimes they even gave us children small gifts or trinkets. For a child growing up in rural Pennsylvania, those presentations were fascinating. Many of us dreamed of becoming missionaries ourselves, or at least deeply admired those who did.
 
 On Sunday mornings, while the adults gathered in the sanctuary for worship, we children attended our own junior church service. In many ways, it mirrored what was happening in the main service. We sang hymns and choruses, took an offering, and listened to a sermon or lesson prepared for us.
 
