@@ -6,7 +6,7 @@ permalink: /early-faith/
 
 I grew up in the Christian and Missionary Alliance from infancy. Because my family lacked reliable transportation, we often attended one of two C&MA churches depending on who could give us a ride. Much of our week revolved around church activities.
 
-<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:1108px">
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/christian-and-missionary-alliance-logo.jpg" alt="Logo of the Christian and Missionary Alliance"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">The Christian and Missionary Alliance was founded in 1887 by A.B. Simpson with the goal of fulfilling the Great Commision to go and make disciples of all nations.</figcaption>
 </figure>
@@ -15,7 +15,7 @@ I also attended a C&MA elementary school, where the faith was taken seriously. I
 
 During the summers, I attended a C&MA Bible camp. My grandparents owned a cottage on the campground, and many of my childhood memories are tied to that place. During Family Camp, my cousins and I slept together on the back porch during hot summer nights. We attended children's programs and youth services, often gathering twice a day throughout the ten-day camp. From an early age, I was immersed in that revivalist form of Christianity. I loved the camp meetings, the services, and the sense of spiritual excitement that surrounded them. In every direction, my world was shaped by this tradition. Looking back, I would say that I was fully immersed in the *phronema* (mindset, outlook, way of thinking) of the Christian and Missionary Alliance, even though I would not learn that word until much later.
 
-<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:545px">
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/camp-worship.jpg" alt="Camp Meeting"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">A typical C&MA camp service combines passionate preaching, stirring music, altar calls, and public acts of commitment such as river baptisms. For many attendees, including myself, these emotionally powerful gatherings become defining moments in their spiritual journey.</figcaption>
 </figure>
@@ -28,7 +28,7 @@ Missions Conferences were another important part of church life. Because the Chr
 
 They brought clothing, artifacts, and photographs from places many of us had never imagined visiting, and they would often dress in traditional local attire. Sometimes they even gave us children small gifts or trinkets. For a child growing up in rural Pennsylvania, those presentations were fascinating. Many of us dreamed of becoming missionaries ourselves, or at least deeply admired those who did.
 
-<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:960px">
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/robert-jaffray.png" alt="Robert A. Jaffray"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">Dr. Robert A. Jaffray, an Alliance missionary to Asia, who perished in a Japanese prison camp during WW2.</figcaption>
 </figure>
@@ -39,7 +39,7 @@ We loved choosing our favorite hymns from the old hymnal, songs like The Old Rug
 
 There was a sense of continuity with the generations that came before me. At the time, I was not really thinking about those who would come after me, but that question eventually became a major factor in my decision to convert to Holy Orthodoxy.
 
-<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:1038px">
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/hymn-book.jpg" alt="Hymn Book"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">An edition of the hymn books we used in Junior Church. My mom still has one in her piano bench to this day.</figcaption>
 </figure>
@@ -78,7 +78,7 @@ At the time, I had no idea how unusual that view was historically. The Christian
 
 Years later, as I began studying Christian history, I discovered that even many of the Protestant Reformers viewed baptism as a means of grace and associated it with regeneration or the remission of sins. The idea that baptism is merely a symbol appeared much later and became especially influential through revivalist traditions that placed the emphasis on a personal conversion experience. Salvation became closely associated with a decision for Christ, while baptism increasingly became secondary. But I knew none of this at the time. To me, baptism was important, yet somehow not important enough to matter very much.
 
-<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:585px">
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/baptismal-service.jpg" alt="Baptismal Service"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">A baptismal service at a C&MA camp.</figcaption>
 </figure>
@@ -95,7 +95,7 @@ Youth retreats followed a fairly predictable pattern. We would arrive on Friday 
 
 I experienced one of those moments during a retreat in high school. The preaching was intense. I had never felt so convicted before. Combined with the worship music and a weekend of very little sleep, I was primed to make a decision for Christ. During the Saturday evening service, I went forward to the altar and broke down in tears. I cried so hard that my shoulders shook. One of the youth leaders put his arm around me, prayed for me, and tried to comfort me.
 
-<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:1500px">
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/altar-call.jpg" alt="Altar Call"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">Responding to a gospel invitation at a youth event.</figcaption>
 </figure>
