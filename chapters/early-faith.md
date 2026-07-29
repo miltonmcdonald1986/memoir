@@ -44,17 +44,37 @@ There was a sense of continuity with the generations that came before me. At the
   <figcaption style="font-style: italic;overflow-wrap: break-word">An edition of the hymn books we used in Junior Church. My mom still has one in her piano bench to this day.</figcaption>
 </figure>
 
-I remember getting saved at a young age. In the tradition in which I was raised, being saved meant that your sins were forgiven and that you would spend eternity with Christ in heaven. The way one became saved was by repenting of sin and asking Jesus to come into one's heart. There was no official formula, but the prayer usually sounded something like: "Lord Jesus, I know that I am a sinner. I know that You died on the cross for my sins. Please come into my heart, forgive my sins, and take me to heaven to be with You when I die. Amen."
+We were taught a simple gospel message. God loved us, but our sins had separated us from Him, leaving us under His wrath and deserving eternal punishment. Yet Jesus came into the world and died on the cross for our sins, satisfying the Father's justice so that we could be forgiven and spend eternity with Him in heaven. All we had to do was believe in Him.
 
-I sincerely prayed that prayer, and I genuinely loved Jesus. I remember feeling deep gratitude and affection for Him because He had died for me. When we sang songs like I Am So Glad That Jesus Loves Me, I sang them from the heart. As far as I knew, my faith was real.
+This gospel was preached from our pulpit, proclaimed at summer camp, and popularized by evangelists such as Billy Graham. We encountered it in children's ministries through tools like the Wordless Book, through verses such as John 3:16, and through countless sermons, tracts, and invitations to faith. We were given many opportunities to get right with God and be saved. I believed this message wholeheartedly.
 
-Yet I did not always have assurance that I was saved. On the one hand, I was taught that if I sincerely prayed and meant it, I was saved. On the other hand, whenever someone struggled spiritually or drifted from the faith, people would sometimes ask, "Were they ever really saved?" or "Did they truly mean it?" Those questions unsettled me. If salvation depended on sincere belief, how could I know whether I had been sincere enough?
+I remember "getting saved" at a young age. In the tradition in which I was raised, being saved meant having your sins forgiven and spending eternity with Christ in heaven. The way one became saved was by repenting of sin and asking Jesus to come into one's heart. There was no official formula, but it usually took the form of a prayer, something like this:
 
-As a result, I repeatedly prayed the sinner's prayer. I cannot say how many times I asked Jesus to come into my heart. My mother and my Sunday school teachers often reassured me that I did not need to keep doing it, that once was enough. Even so, they were patient and kind, and they would pray with me again whenever I asked because they knew I was struggling with doubt.
+"Lord Jesus, I know that I am a sinner. I know that You died on the cross for my sins. Please come into my heart, forgive my sins, and take me to heaven to be with You when I die. Amen."
 
-Looking back, I think even a child can sense the uncertainty that comes from wondering whether he has believed sincerely enough. I often felt trapped between assurance and doubt. If I truly was saved, then there was no need to pray again. But if I had not been sincere enough the first time, perhaps I was still lost. The tension stayed with me as I grew older, and it became even more significant when I began serving as a youth leader and found myself helping other young people wrestle with the same questions.
+I sincerely prayed that prayer, and I genuinely loved Jesus. I remember feeling deep gratitude and affection for Him because He had died for me. When we sang songs such as I Am So Glad That Jesus Loves Me, I sang them from the heart. As far as I knew, my faith was real.
 
-I was baptized as a young child, though I can't say for certain how old I was. If I had to guess, I was around nine years old. I remember feeling good about the experience and thinking it was kind of fun. Beyond that, I don't remember much about the day itself. I understood baptism as an outward sign of an inward change, which is how the Christian and Missionary Alliance describes it. There was no belief that baptism itself forgave sins or accomplished anything of that nature. Even so, it was a meaningful experience, a pleasant childhood memory, and another step that strengthened my sense of belonging as a member of the church community.
+Yet I did not always have assurance that I was saved. On the one hand, I was taught that if I sincerely prayed and truly meant it, I was saved. On the other hand, whenever someone struggled spiritually or drifted from the faith, people would sometimes ask, "Were they ever really saved?" or "Did they truly mean it?" Those questions unsettled me. If salvation depended on sincere belief, how could I know whether I had been sincere enough?
+
+As a result, I repeatedly prayed the sinner's prayer. I cannot say how many times I asked Jesus to come into my heart. My mother and Sunday school teachers often reassured me that I did not need to keep doing it, that once was enough. Even so, they were patient and kind, and they would pray with me again whenever I asked because they knew I was struggling with doubt.
+
+Looking back, I see that even a child can sense the uncertainty that comes from wondering whether he has believed sincerely enough. I often wavered between assurance and doubt. If I truly was saved, there was no need to pray again. But if I had not been sincere enough the first time, perhaps I was still lost.
+
+At the time, I did not realize that this tension arose from theological assumptions embedded in the soteriology of my tradition, particularly ideas associated with Calvinism, such as the Perseverance of the Saints. If those who are truly saved will inevitably persevere to the end, then doubts naturally follow: How do I know I was sincere enough? What if I only think I am saved? What if I become one of those people who falls away?
+
+I was also unaware of the ancient and historic Christian understanding of salvation as more than a legal declaration. In that tradition, salvation is a lifelong process of healing, transformation, and deification through communion with God. Instead of asking, "Was I sincere enough when I prayed the sinner's prayer?" I could have been asking, "Am I turning toward Christ now?"
+
+That tension stayed with me as I grew older, and it became even more significant when I began serving as a youth leader and found myself helping other young people wrestle with the same questions.
+
+I was baptized as a young child, around nine years old. I remember feeling good about the experience and thinking it was kind of fun. Beyond that, I do not remember much about the day itself.
+
+I understood baptism as an outward sign of an inward change, which is how the Christian and Missionary Alliance describes it. There was no belief that baptism itself forgave sins or accomplished anything of that nature. I knew Christians in our church who had never been baptized. They simply did not see it as a priority, or they viewed it as something they would get around to eventually.
+
+Occasionally, during baptism services, an elderly person who had attended church his or her entire life would finally be baptized. They always seemed genuinely excited to have it done. Looking back, I wonder whether one's perspective on baptism changes with age, especially if one has never experienced it. Perhaps they were trying to cover their bases. Who knows?
+
+What struck me as odd, however, was that before nearly every baptism service, the pastor would preach a sermon emphasizing that baptism does not save you. It was as though the underlying theology was more important than the ordinance itself. In fact, we never referred to baptism as a sacrament. The emphasis was not on what baptism was, but on what baptism was not.
+
+STOPPED EDITING HERE!!!
 
 When I entered my teenage years, I joined the church youth group. This marked a major change in my life because I had reached the age where we were encouraged to make our faith our own. In other words, it was no longer enough to rely on the faith of our parents or grandparents. We were expected to develop a personal faith and a personal relationship with Christ. Looking back, this strikes me as somewhat odd. After all, when I had asked Jesus into my heart as a child, wasn't that already a decision to make the faith my own?
 
