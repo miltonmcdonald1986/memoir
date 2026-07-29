@@ -95,6 +95,11 @@ Youth retreats followed a fairly predictable pattern. We would arrive on Friday 
 
 I experienced one of those moments during a retreat in high school. The preaching was intense. I had never felt so convicted before. Combined with the worship music and a weekend of very little sleep, I was primed to make a decision for Christ. During the Saturday evening service, I went forward to the altar and broke down in tears. I cried so hard that my shoulders shook. One of the youth leaders put his arm around me, prayed for me, and tried to comfort me.
 
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:1500px">
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/altar-call.jpg" alt="Altar Call"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">Responding to a gospel invitation at a youth event.</figcaption>
+</figure>
+
 At the time, I could not have explained exactly what was happening. I only knew that I felt deeply sorry for my sins. I felt that I had disappointed God, and I longed for His forgiveness, acceptance, and love. This felt like a real conversion. The sinner's prayer I had prayed as a child seemed little more than a formality by comparison.
 
 The feelings did not last. Eventually, I came down from the spiritual high and returned to my normal life, focused on selfish pleasures, having fun, and pursuing girls. Looking back, that experience was the first in a series of moments that another author has called the "rededication cycle," a concept I will discuss later.
