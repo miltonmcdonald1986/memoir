@@ -49,8 +49,8 @@ We watched television prophets like Jack Van Impe, who explained the end times i
 Let me give you a strange example of the absurdity of dispensationalist theology. As a child, I was told that I probably would not have to worry about dying because Christ would return first. The reasoning was based on a popular interpretation of Matthew 24:34. Dispensationalists often taught that the "generation" that would not pass away before Christ's return was the generation alive when the modern state of Israel was founded in 1948. Since a generation was commonly defined as only 50 to 60 years, many expected the rapture to occur sometime around the turn of the millennium. Born in 1986, I was told I was one of the "lucky" ones. The expectation was that I would likely be raptured before reaching adulthood, never having to face death at all. As a result, I genuinely believed, at least on some level, that I was exempt from mortality. It sounds bizarre now, but that belief made coming to terms with my own mortality later in life much more difficult than it should have been.
 
 <blockquote style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:400px">
-  Matthew 24:34 - Assuredly, I say to you, this generation will by no means pass away till all these things take place.
-  <cite><a href="https://www.biblegateway.com/passage/?search=Matthew%2024%3A34&version=NKJV">Bible Gateway</a></cite>
+  Assuredly, I say to you, this generation will by no means pass away till all these things take place.
+  <cite><a href="https://www.biblegateway.com/passage/?search=Matthew%2024%3A34&version=NKJV">Matthew 24:34</a></cite>
 </blockquote>
 
 HERE!!!
