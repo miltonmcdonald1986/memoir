@@ -28,6 +28,11 @@ Missions Conferences were another important part of church life. Because the Chr
 
 They brought clothing, artifacts, and photographs from places many of us had never imagined visiting, and they would often dress in traditional local attire. Sometimes they even gave us children small gifts or trinkets. For a child growing up in rural Pennsylvania, those presentations were fascinating. Many of us dreamed of becoming missionaries ourselves, or at least deeply admired those who did.
 
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:545px">
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/robert-jaffray.png" alt="Robert A. Jaffray"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">Dr. Robert A. Jaffray, an Alliance missionary to Asia, who perished in a Japanese prison camp during WW2.</figcaption>
+</figure>
+
 On Sunday mornings, while the adults gathered in the sanctuary for worship, we children attended our own junior church service. In many ways, it mirrored what was happening in the main service. We sang hymns and choruses, took an offering, and listened to a sermon or lesson prepared for us.
 
 My mother played the piano, and I often helped by holding the hymnbook and turning the pages. We loved choosing our favorite hymns from the old hymnal—songs like The Old Rugged Cross, Amazing Grace, and Blessed Assurance. I would sit there holding those worn hymnbooks and assume that the songs inside must be incredibly ancient, perhaps even stretching back to the earliest days of Christianity. Of course, I later learned that most of them were written in the nineteenth century, but I had no idea at the time.
