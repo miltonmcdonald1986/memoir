@@ -68,11 +68,20 @@ That tension stayed with me as I grew older, and it became even more significant
 
 I was baptized as a young child, around nine years old. I remember feeling good about the experience and thinking it was kind of fun. Beyond that, I do not remember much about the day itself.
 
-I understood baptism as an outward sign of an inward change, which is how the Christian and Missionary Alliance describes it. There was no belief that baptism itself forgave sins or accomplished anything of that nature. I knew Christians in our church who had never been baptized. They simply did not see it as a priority, or they viewed it as something they would get around to eventually.
+I understood baptism as an outward sign of an inward change, which is how the Christian and Missionary Alliance describes it. There was no belief that baptism itself forgave sins or accomplished anything of that nature. I knew Christians in our church who had never been baptized. They simply did not see it as a priority, or viewed it as something they would get around to eventually.
 
-Occasionally, during baptism services, an elderly person who had attended church his or her entire life would finally be baptized. They always seemed genuinely excited to have it done. Looking back, I wonder whether one's perspective on baptism changes with age, especially if one has never experienced it. Perhaps they were trying to cover their bases. Who knows?
+Occasionally, during baptism services, an elderly person who had attended church his or her entire life would finally be baptized. They always seemed genuinely excited about it. Looking back, I wonder whether one's perspective on baptism changes with age, especially if one has never experienced it. Perhaps they were trying to cover their bases. Who knows?
 
 What struck me as odd, however, was that before nearly every baptism service, the pastor would preach a sermon emphasizing that baptism does not save you. It was as though the underlying theology was more important than the ordinance itself. In fact, we never referred to baptism as a sacrament. The emphasis was not on what baptism was, but on what baptism was not.
+
+At the time, I had no idea how unusual that view was historically. The Christians of the early Church spoke of baptism as the forgiveness of sins, new birth, union with Christ, and entrance into the Church. The Nicene Creed itself proclaims, "I acknowledge one baptism for the remission of sins." The New Testament likewise speaks of baptism in strikingly powerful terms. Yet none of this was part of my understanding as a child.
+
+Years later, as I began studying Christian history, I discovered that even many of the Protestant Reformers viewed baptism as a means of grace and associated it with regeneration or the remission of sins. The idea that baptism is merely a symbol appeared much later and became especially influential through revivalist traditions that placed the emphasis on a personal conversion experience. Salvation became closely associated with a decision for Christ, while baptism increasingly became secondary. But I knew none of this at the time. To me, baptism was important, yet somehow not important enough to matter very much.
+
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:585px">
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/baptismal-service.jpg" alt="Baptismal Service"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">A baptismal service at a C&MA camp.</figcaption>
+</figure>
 
 STOPPED EDITING HERE!!!
 
