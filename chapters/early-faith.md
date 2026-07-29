@@ -33,11 +33,16 @@ They brought clothing, artifacts, and photographs from places many of us had nev
   <figcaption style="font-style: italic;overflow-wrap: break-word">Dr. Robert A. Jaffray, an Alliance missionary to Asia, who perished in a Japanese prison camp during WW2.</figcaption>
 </figure>
 
-On Sunday mornings, while the adults gathered in the sanctuary for worship, we children attended our own junior church service. In many ways, it mirrored what was happening in the main service. We sang hymns and choruses, took an offering, and listened to a sermon or lesson prepared for us.
+On Sunday mornings, while the adults gathered in the sanctuary for worship, we children attended our own junior church service. It was like a parallel service for kids, a mirror of what was happening in the main sanctuary. We sang hymns, took an offering, and listened to a sermon or lesson taught by one of the pastors’ wives. My mother played the piano for these services, and I often helped by holding the hymnal and turning the pages.
 
-My mother played the piano, and I often helped by holding the hymnbook and turning the pages. We loved choosing our favorite hymns from the old hymnal—songs like The Old Rugged Cross, Amazing Grace, and Blessed Assurance. I would sit there holding those worn hymnbooks and assume that the songs inside must be incredibly ancient, perhaps even stretching back to the earliest days of Christianity. Of course, I later learned that most of them were written in the nineteenth century, but I had no idea at the time.
+We loved choosing our favorite hymns from the old hymnal, songs like The Old Rugged Cross, Amazing Grace, and Blessed Assurance. I loved those hymnals: the look and feel of them, and even their musty old smell. As a child, I imagined these hymns were older than they really were; most were written in the nineteenth century. Looking back, I realize that our tradition was relatively young. Yet it never felt that way to me. I felt as though I belonged to an unchanging faith and assumed it had always been, and always would be, this way.
 
-Looking back, I realize that our tradition was relatively young. Yet as a child, it never felt that way. I felt as though I belonged to an ancient faith and that the worship we practiced was the same worship Christians had always offered to God. There was a sense of continuity that I could not have explained at the time. I felt connected not only to my parents and grandparents, but also to generations of believers who had come before them. In my mind, that connection stretched all the way back to Jesus Himself.
+There was a sense of continuity with the generations that came before me. At the time, I was not really thinking about those who would come after me, but that question eventually became a major factor in my decision to convert to Holy Orthodoxy.
+
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:1038px">
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/hymn-book.jpg" alt="Hymn Book"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">An edition of the hymn books we used in Junior Church. My mom still has one in her piano bench to this day.</figcaption>
+</figure>
 
 I remember getting saved at a young age. In the tradition in which I was raised, being saved meant that your sins were forgiven and that you would spend eternity with Christ in heaven. The way one became saved was by repenting of sin and asking Jesus to come into one's heart. There was no official formula, but the prayer usually sounded something like: "Lord Jesus, I know that I am a sinner. I know that You died on the cross for my sins. Please come into my heart, forgive my sins, and take me to heaven to be with You when I die. Amen."
 
