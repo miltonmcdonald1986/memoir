@@ -83,25 +83,27 @@ Years later, as I began studying Christian history, I discovered that even many 
   <figcaption style="font-style: italic;overflow-wrap: break-word">A baptismal service at a C&MA camp.</figcaption>
 </figure>
 
-STOPPED EDITING HERE!!!
+When I entered my teenage years, I joined the church youth group. This marked a major transition in my life because I had reached the age when we were encouraged to make the faith our own. It was no longer enough to rely on the faith of our parents or grandparents. We were expected to develop a personal faith and a personal relationship with Christ.
 
-When I entered my teenage years, I joined the church youth group. This marked a major change in my life because I had reached the age where we were encouraged to make our faith our own. In other words, it was no longer enough to rely on the faith of our parents or grandparents. We were expected to develop a personal faith and a personal relationship with Christ. Looking back, this strikes me as somewhat odd. After all, when I had asked Jesus into my heart as a child, wasn't that already a decision to make the faith my own?
+I was entering a new world filled with fun, chaos, anxiety, emotion, and powerful experiences. Our youth leader poured her heart and soul into the group. She invested countless hours planning activities, encouraging us, and introducing us to Christian music by bands such as DC Talk, Skillet, Relient K, and many others.
 
-Regardless, I was entering a new world, one I had no idea existed. It was a world filled with fun, chaos, anxiety, emotion, and powerful experiences. Our youth leader poured her heart and soul into the group. She invested countless hours planning activities, encouraging us, and introducing us to Christian music by bands such as DC Talk, Skillet, Relient K, and others.
-
-We regularly held special events at the church. One of the most memorable was the lock-in, where we spent an entire night—and sometimes nearly twenty-four hours—at the church. These events were fun, energetic, and often a little chaotic. We also participated in programs such as the 30 Hour Famine, going without food for thirty hours to raise money and awareness for children suffering from hunger around the world. At times, we ventured into the community for scavenger hunts and other activities that occasionally got us into trouble.
+We regularly held special events at the church. One of the most memorable was the lock-in, where we spent an entire night, and sometimes nearly twenty-four hours, at the church. These events were fun, energetic, and often a little chaotic. We also participated in programs such as the 30 Hour Famine, going without food to raise money and awareness for children suffering from hunger around the world. At times, we ventured into the community for scavenger hunts and other activities that occasionally got us into trouble.
 
 Among all the events and activities, however, the most powerful were the weekend retreats.
 
-Youth group retreats followed a fairly predictable pattern. We would arrive on Friday and stay through Sunday, participating in four main worship services over the course of the weekend. The third service, held on Saturday night, was typically the turning point of the retreat. It was the moment when students were encouraged to make a decision for Christ, come forward to the altar, pray, worship, and recommit their lives to Him.
+Youth retreats followed a fairly predictable pattern. We would arrive on Friday and stay through Sunday, participating in four main worship services over the course of the weekend. The third service, held on Saturday night, was typically the turning point. It was the moment when students were encouraged to make a decision for Christ, come forward to the altar, pray, worship, and recommit their lives to Him.
 
-I experienced one of those moments during a retreat in high school. After a weekend of worship and preaching, I went forward to the altar and broke down in tears. I remember crying so hard that my shoulders shook. One of the youth leaders put his arm around me, prayed for me, and tried to comfort me. At the time, I could not have explained exactly what was happening. I only knew that I felt deeply sorry for my sins. I felt that I had disappointed God, and I wanted His forgiveness, His acceptance, and His love.
+I experienced one of those moments during a retreat in high school. The preaching was intense. I had never felt so convicted before. Combined with the worship music and a weekend of very little sleep, I was primed to make a decision for Christ. During the Saturday evening service, I went forward to the altar and broke down in tears. I cried so hard that my shoulders shook. One of the youth leaders put his arm around me, prayed for me, and tried to comfort me.
 
-Looking back, that experience was the first in a series of moments that another author has called the "rededication cycle," a concept I will discuss later. Even so, I want to be clear that I do not look back on that experience as something insincere or artificial. Whatever else may be said about it, it was real to me. I remember the conviction I felt, the emotions I experienced, and the commitment I made that night to follow Christ.
+At the time, I could not have explained exactly what was happening. I only knew that I felt deeply sorry for my sins. I felt that I had disappointed God, and I longed for His forgiveness, acceptance, and love. This felt like a real conversion. The sinner's prayer I had prayed as a child seemed little more than a formality by comparison.
 
-Although I failed many times afterward and would experience similar moments again in the years to come, I still view that retreat as a significant moment in my life. It marked a sincere commitment to Christ and remains one of the defining spiritual experiences of my youth.
+The feelings did not last. Eventually, I came down from the spiritual high and returned to my normal life, focused on selfish pleasures, having fun, and pursuing girls. Looking back, that experience was the first in a series of moments that another author has called the "rededication cycle," a concept I will discuss later.
 
-I’ll return to that moment in my life shortly, but first I need to pause and explain the religious framework in which I was spiritually formed. There are a few elements that uniquely shaped my situation and the kind of Christianity I inherited. The first of these is prophecy culture and dispensationalism.
+Even so, I do not look back on that experience as insincere or artificial. Whatever else may be said about it, it was real to me. I remember the conviction I felt, the emotions I experienced, and the commitment I made that night to follow Christ.
+
+Although I failed many times afterward and would experience similar moments again in the years that followed, I still view that retreat as a significant turning point. It marked a sincere commitment to Christ and remains one of the defining spiritual experiences of my youth.
+
+I will return to that moment shortly, but first I need to explain the religious framework in which I was spiritually formed. Several influences uniquely shaped my experience and the kind of Christianity I inherited. The first of these was prophecy culture and dispensationalism.
 
 <div style="display: flex; justify-content: space-between; width: 100%;">
   <a href="/memoir/introduction">← Previous Section: Introduction</a>
