@@ -35,7 +35,7 @@ We kids were often entertained and indoctrinated through the use of Chick tracts
 
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:484px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/chick-tract-catholic.png" alt="Chick Tract"/>
-  <figcaption style="font-style: italic;overflow-wrap: break-word">Portions of a "Chick Tract" laying out the argument that people who accept evolution don't trust God, and are actually trying to hide the truth from you.</figcaption>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">A Chick Tract referring to the Roman Catholic Church as the Whore of Babylon.</figcaption>
 </figure>
 
 Now, as an adult, I realize these comics are ridiculous, but as a child I accepted them as an authority. My parents gave them to me, and they were produced by a Christian publishing house—which I assumed was legitimate. We all have authorities and worldviews we subscribe to, whether we say it out loud or not.
