@@ -17,7 +17,7 @@ Another story that circulated in my circles was the Three Days of Darkness, a pr
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:268px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/anna.jpg" alt="Anna Maria Taigi"/>
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/marie-julie.jpg" alt="Marie-Julie Jahenny"/>
-  <figcaption style="font-style: italic;overflow-wrap: break-word">Anna Maria Taigi, the Roman Catholic mystic whose private revelations are often associated with the prophecy of the Three Days of Darkness, alongside Marie-Julie Jahenny, the Breton stigmatist who later helped popularize the prophecy.</figcaption>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">Anna Maria Taigi (above), the Roman Catholic mystic whose private revelations are often associated with the prophecy of the Three Days of Darkness, and Marie-Julie Jahenny (below), the Breton stigmatist who later helped popularize the prophecy.</figcaption>
 </figure>
 
 Looking back, I found the whole thing puzzling. The religious environment in which I was raised was strongly anti-Catholic and generally dismissed Catholic teachings and traditions. Yet this particular story seemed to circulate freely despite its Catholic origins. I don't bring this up to ridicule anyone. Rather, it illustrates how fear can sometimes override our usual attitudes.
