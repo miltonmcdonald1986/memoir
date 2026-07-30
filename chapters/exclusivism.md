@@ -27,17 +27,16 @@ Another example was the issue of creation and evolution. In my circles, a young-
   <figcaption style="font-style: italic;overflow-wrap: break-word">Portions of a "Chick Tract" laying out the argument that people who accept evolution don't trust God, and are actually trying to hide the truth from you.</figcaption>
 </figure>
 
-What troubled me was not that people held strong convictions about Genesis, but that the issue could become a test of orthodoxy. The conversation often seemed less about weighing evidence and more about determining whether someone was truly faithful to Scripture. In some cases, a person's view of evolution could even raise questions about the authenticity of their faith. As a result, I found myself wondering how a belief about the age of the earth had become so closely connected to assurances of salvation.
+What troubled me was not that people held strong convictions about Genesis, but that the issue could become a test of salvation. The conversation often seemed less about weighing evidence and more about determining whether someone was truly faithful to Scripture. In some cases, a person's view of evolution could even raise questions about the authenticity of their faith. As a result, I found myself wondering how a belief about the age of the earth had become so closely connected to assurances of salvation.
 
 To be clear, I fully agreed with and defended everything I was taught by the creationists. I was not a skeptic looking in from the outside. Yet this issue would eventually become the first major pillar to fall during my deconstruction in my twenties, when I discovered that sincere, Bible-believing Christians held a variety of views on origins. For the first time, I began to realize that faithful Christians could disagree on important questions without rejecting Christ or abandoning the authority of Scripture.
 
-STOP HERE!!!
+We kids were often entertained and indoctrinated through the use of Chick tracts. These were comic‑style pamphlets meant to evangelize, but they were so polemical that they came across as downright hateful. <a href="https://www.chick.com/products/tract?stk=82&ue=d">The comics outright stated that Catholics were going to hell.</a> They implied that mainline Protestants were probably going to hell. People who believed in evolution were going to hell. Basically, everyone was going to hell except the people who believed in the exact caricature of Christ being presented in the comic strip.
 
-This exclusivism threatened not just Orthodox and Catholics, but also fellow Protestants who didn’t hold enough of the “correct” beliefs that we did. My childhood heart felt comfort in the idea that I had the correct beliefs and belonged to the group with the correct beliefs. But my mind was smart enough to realize that maybe—just maybe—I was wrong. What if one of the other groups had the correct beliefs instead? Was I going to hell for that?
-
-My instinct was simply to rely on the mercy of Christ, which is interesting because that’s my viewpoint now as an adult. But back then, relying on Christ’s mercy wasn’t enough if you didn’t sincerely believe everything correctly. Perhaps an official from the C&MA church would argue that these are not official positiona doctrines of the church. And if so, I accept that. But I can tell you that on the practical, day to day level, this is what I was taught.
-
-We kids were often entertained and indoctrinated through the use of Chick tracts. These were comic‑style pamphlets meant to evangelize, but they were so polemical that they came across as downright hateful. The comics outright stated that Catholics were going to hell. They implied that mainline Protestants were probably going to hell. People who believed in evolution were going to hell. Basically, everyone was going to hell except the people who believed in the exact caricature of Christ being presented in the comic strip.
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:484px">
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/chick-tract-catholic.png" alt="Chick Tract"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">Portions of a "Chick Tract" laying out the argument that people who accept evolution don't trust God, and are actually trying to hide the truth from you.</figcaption>
+</figure>
 
 Now, as an adult, I realize these comics are ridiculous, but as a child I accepted them as an authority. My parents gave them to me, and they were produced by a Christian publishing house—which I assumed was legitimate. We all have authorities and worldviews we subscribe to, whether we say it out loud or not.
 
@@ -54,6 +53,16 @@ Yes, the Bible says that what is important to know about God is made manifest th
 In a way, I almost had a kind of survivor’s guilt—feeling that I didn’t deserve to be born in America, where I could hear the gospel. It all felt arbitrary. Later on, I realized this came from Calvinist theology infecting our faith, even though nobody I knew ever said that out loud.
 
 I rest more easily now knowing that Christ is the Savior of the whole world and that all will be raised and face the judgment. Christ is a merciful judge. I’m not claiming to know what His judgments will be for any particular person, but I know they will not be capricious, arbitrary, or random. Because otherwise it would mean geography matters more than mercy, and the time and place you were born matters more than what He did for you on the cross. Essentially, it would mean God’s love has borders.
+
+
+
+Looking back, I think the common thread running through all of this was how intellectualized faith had become. Because salvation was understood primarily in terms of belief, and because good works were carefully separated from any role in salvation, it often felt as though everything hinged on believing the right things. In theory, all a person had to do was believe in Jesus. In practice, however, there seemed to be an ever-expanding list of beliefs that functioned as tests of whether that faith was genuine.
+
+Questions about the atonement, creation, alcohol, spiritual gifts, end-times prophecy, and countless other issues could become indicators of whether someone was truly saved. Officially, no one claimed to know the state of another person's soul. Yet there was an underlying tendency to evaluate people through the lens of their beliefs and practices, searching for evidence that their profession of faith was authentic.
+
+I remember sitting in church and quietly wondering about the people around me. Did they really believe the right things? Were they trusting in Christ alone, or in their works? What did they think about evolution? Were their convictions biblical enough? The irony was that a tradition that spoke constantly about assurance often left me feeling uncertain. Not only was I uncertain about myself, but I found it difficult to feel certain about anyone else.
+
+What struck me as especially strange was that this version of Christianity often presented itself as the simplest possible faith. The message was frequently reduced to a few essential beliefs: accept Jesus, believe the gospel, and be saved. Yet at the same time, entire groups of Christians, including Orthodox, Catholics, and many mainline Protestants, were often regarded with deep suspicion or excluded altogether. The faith was presented as a lowest-common-denominator Christianity, but in practice the boundaries seemed much narrower than its simplicity suggested.
 
 <div style="display: flex; justify-content: space-between; width: 100%;">
   <a href="/memoir/prophecy-culture-and-dispensationalism">← Previous Section: Prophecy Culture and Dispensationalism</a>
