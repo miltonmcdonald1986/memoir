@@ -23,7 +23,7 @@ Sometimes the reaction against works righteousness was so strong that it almost 
 Another example was the issue of creation and evolution. In my circles, a young-earth view of Genesis, popularized by figures such as Ken Ham and Kent Hovind, was often treated as the only faithful Christian position. If you did not believe the earth was roughly 6,000 years old or that the days of Genesis 1 were literal twenty-four-hour periods, you were frequently seen as compromising biblical truth. I sometimes encountered the impression that acceptance of evolution was not simply an intellectual disagreement but part of a broader drift away from Christianity itself.
 
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:335px">
-  <img style="display: block;width: 100%; height: auto;" src="../assets/images/chick-tract-creation.jpg" alt="Chick Tract"/>
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/chick-tract-creation.png" alt="Chick Tract"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">Portions of a "Chick Tract" laying out the argument that people who accept evolution don't trust God, and are actually trying to hide the truth from you.</figcaption>
 </figure>
 
