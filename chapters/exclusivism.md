@@ -27,12 +27,12 @@ Another example was the issue of creation and evolution. In my circles, a young-
   <figcaption style="font-style: italic;overflow-wrap: break-word">An <i>Answers in Genesis</i> film accuses Christians who accept an old earth of "compromise."</figcaption>
 </figure>
 
+What troubled me was not that people held strong convictions about Genesis, but that the issue could become a test of salvation. The conversation often seemed less about weighing evidence and more about determining whether someone was truly faithful to Scripture. In some cases, a person's view of evolution could even raise questions about the authenticity of their faith. As a result, I found myself wondering how a belief about the age of the earth had become so closely connected to assurances of salvation.
+
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:335px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/chick-tract-creation.png" alt="Chick Tract"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">Portions of a "Chick Tract" laying out the argument that people who accept evolution don't trust God, and are actually trying to hide the truth from you.</figcaption>
 </figure>
-
-What troubled me was not that people held strong convictions about Genesis, but that the issue could become a test of salvation. The conversation often seemed less about weighing evidence and more about determining whether someone was truly faithful to Scripture. In some cases, a person's view of evolution could even raise questions about the authenticity of their faith. As a result, I found myself wondering how a belief about the age of the earth had become so closely connected to assurances of salvation.
 
 To be clear, I fully agreed with and defended everything I was taught by the creationists. I was not a skeptic looking in from the outside. Yet this issue would eventually become the first major pillar to fall during my deconstruction in my twenties, when I discovered that sincere, Bible-believing Christians held a variety of views on origins. For the first time, I began to realize that faithful Christians could disagree on important questions without rejecting Christ or abandoning the authority of Scripture.
 
