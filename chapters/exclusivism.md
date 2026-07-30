@@ -4,8 +4,6 @@ title: Exclusivism
 permalink: /exclusivism/
 ---
 
-## It is Necessary That You Understand
-
 One of the accusations people confront me with when they hear I converted to Orthodoxy is that the Orthodox Church is exclusionary, meaning it believes there is no safety in salvation outside the Orthodox Church. On the surface, that accusation seems legitimate. After all, aren’t we all Christians? Shouldn’t we just focus on Jesus rather than all this other stuff?
 
 Yet my own tradition had an exclusivism it didn’t even recognize. It taught that anyone who was a “born-again believer” was saved, but in practice, believing in Christ was not always enough. You also had to have the correct understanding of what you believed, or your salvation could be called into question.
