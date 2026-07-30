@@ -4,9 +4,13 @@ title: Exclusivism
 permalink: /exclusivism/
 ---
 
-One of the accusations people confront me with when they hear I converted to Orthodoxy is that the Orthodox Church is exclusionist—meaning it believes there’s no safety, in terms of salvation, outside the Orthodox Christian Church. On the surface, that accusation seems legitimate. After all, aren’t we all Christians? And yet my own tradition had an exclusivism it didn’t even recognize. They said anyone who was a “born‑again believer” was saved and going to heaven, but the part they left out—and the part that was deeply true in our tradition—was that it wasn’t enough to believe in Christ. You had to have all the correct beliefs, or you were in real danger of hell.
+One of the accusations people confront me with when they hear I converted to Orthodoxy is that the Orthodox Church is exclusionary, meaning it believes there is no safety in salvation outside the Orthodox Church. On the surface, that accusation seems legitimate. After all, aren’t we all Christians? Shouldn’t we just focus on Jesus rather than all this other stuff?
 
-For example, it wasn’t enough to believe that Christ died on the cross for our sins. You also had to believe that He was receiving a punishment from God when it happened. In other words, you had to subscribe to the correct atonement theory, or you weren’t necessarily saved—even if you believed in Jesus.
+Yet my own tradition had an exclusivism it didn’t even recognize. It taught that anyone who was a “born-again believer” was saved, but in practice, believing in Christ was not always enough. You also had to have the correct understanding of what you believed, or your salvation could be called into question.
+
+For example, it wasn’t enough to believe that Christ died on the cross for our sins. You were expected to affirm Penal Substitutionary Atonement, and those who rejected it often found their salvation questioned. The idea that a sincere faith was not enough, and that salvation depended on holding the right theological formulations, deeply troubled me.
+
+I was constantly afraid that I might be wrong about some obscure doctrine that would ultimately prove essential. Looking across the many Christian denominations, I found myself wondering which one had the most correct beliefs. At times, it felt as though salvation depended on passing a theology exam.
 
 Another example had to do with works. You were supposed to do good works, but if you accidentally had the idea that your works were pleasing to God, or that you were somehow experiencing salvation through them, you were considered to be on the path to absolute hellfire and brimstone. It is astonishing to me how much the idea of works was ridiculed and criticized in my tradition—so much so that it felt like, as long as you said the prayer and “got Jesus in your heart,” it didn’t really matter how you lived. Because if you tried to do a work, you might undo everything and wind up in hell.
 
