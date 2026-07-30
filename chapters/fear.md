@@ -8,7 +8,7 @@ Fear played a significant role in shaping my spirituality as a child. I was expl
 
 A couple of stories in particular illustrate what I mean. These were the kinds of things that circulated first through chain letters and later through email, social media, and YouTube.
 
-One story that frightened me involved the Black‑Eyed Children, mysterious figures said to knock on doors at night. I was told that as long as I never let them into my home, I would be safe, but if they were allowed inside, something terrible would happen. What made the story especially frightening was that these children were said to prey on a person's compassion. They would beg for food, claim someone was chasing them, or ask for shelter. According to the story, that was how they lured people into letting them in.
+One story that frightened me involved the <a href="https://www.pararational.com/brian-bethel-the-black-eyed-kids/">Black‑Eyed Children</a>, mysterious figures said to knock on doors at night. I was told that as long as I never let them into my home, I would be safe, but if they were allowed inside, something terrible would happen. What made the story especially frightening was that these children were said to prey on a person's compassion. They would beg for food, claim someone was chasing them, or ask for shelter. According to the story, that was how they lured people into letting them in.
 
 I was terrified of these children and desperately hoped I would never encounter them. It wasn't until years later that I learned the story originated in a tabloid account from the 1980s. Its origins had nothing to do with Christian teaching; it was simply an urban legend that had found its way into religious circles. But the fear it produced in me was real.
 
