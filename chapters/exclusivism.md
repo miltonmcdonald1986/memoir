@@ -12,6 +12,8 @@ For example, it wasn’t enough to believe that Christ died on the cross for our
 
 I was constantly afraid that I might be wrong about some obscure doctrine that would ultimately prove essential. Looking across the many Christian denominations, I found myself wondering which one had the most correct beliefs. At times, it felt as though salvation depended on passing a theology exam.
 
+
+
 Another example had to do with works. You were supposed to do good works, but if you accidentally had the idea that your works were pleasing to God, or that you were somehow experiencing salvation through them, you were considered to be on the path to absolute hellfire and brimstone. It is astonishing to me how much the idea of works was ridiculed and criticized in my tradition—so much so that it felt like, as long as you said the prayer and “got Jesus in your heart,” it didn’t really matter how you lived. Because if you tried to do a work, you might undo everything and wind up in hell.
 
 One strange exclusivist test we had was young earth creationism Allah can ham and Kent hovid and answers in genesis if you didn't accept the 6000 year old earth than 24 hour days in genesis 1 you are just wrong you were an evolutionist and maybe even part of a larger conspiracy to destroy Christianity these people talked about scientists with open content claiming that they were basically evil rather than imagining that they could view the evidence of another way but the point was if you didn't believe rightly about evolution you could actually question whether or not you were truly saved
