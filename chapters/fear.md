@@ -20,7 +20,7 @@ The fears that stayed with me the longest were not the urban legends themselves.
 
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:447px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/billboard.jpg" alt="Billboard"/>
-  <figcaption style="font-style: italic;overflow-wrap: break-word">These kinds of billboards left me feeling fear, despair, and hopelessness.</figcaption>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">These kinds of billboards can leave one feeling fear, despair, and hopelessness.</figcaption>
 </figure>
 
 The underlying message I absorbed from all of this was simple: danger was everywhere, and I was always one wrong step away from going to hell. I felt like I was constantly bracing myself for some terrible event that never actually happened, whether it was the rapture, the Three Days of Darkness, or razor blades hidden in my Halloween candy. I didn't fully recognize this until many years later, but there seemed to be a strange contradiction at work. On Sunday we would sing Blessed Assurance, declaring confidence in Christ, and then spend the rest of the week worrying that one wrong decision, action, or belief could place us in spiritual danger. Assurance was something we professed, but fear often seemed to have a greater influence on my spiritual formation. Looking back, I found it difficult to develop a healthy view of God because my sense of security often seemed to hinge on whether I was believing sincerely enough, repenting sincerely enough, or trusting sincerely enough.
