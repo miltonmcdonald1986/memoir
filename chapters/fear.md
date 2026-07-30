@@ -15,7 +15,7 @@ I was terrified of these children and desperately hoped I would never encounter 
 Another story that circulated in my circles was the Three Days of Darkness, a prophecy that claimed the sun would go dark for three days. We were told that every window had to be completely covered or demonic forces could enter the home and bring harm. No artificial light would work, only blessed beeswax candles, and families were encouraged to stockpile food and supplies to survive the event. Years later, I was surprised to learn that the prophecy was commonly traced back to the private revelations of the Roman Catholic mystic Anna Maria Taigi. According to these accounts, the faithful were instructed to remain indoors, cover their windows, and pray while darkness, pestilence, and spiritual forces roamed outside.
 
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
-  <img style="display: block;width: 100%; height: auto;" src="../assets/images/three-days.jpg" alt="Anna Maria Taigi and Marie-Julie Jahenny"/>
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/three-days.png" alt="Anna Maria Taigi and Marie-Julie Jahenny"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">Anna Maria Taigi (left), the Roman Catholic mystic whose private revelations are often associated with the prophecy of the Three Days of Darkness, and Marie-Julie Jahenny, the Breton stigmatist who later helped popularize the prophecy.</figcaption>
 </figure>
 
