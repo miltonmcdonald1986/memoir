@@ -24,7 +24,7 @@ Another example was the issue of creation and evolution. In my circles, a young-
 
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="../assets/images/aig.png" alt="Answers In Genesis"/>
-  <figcaption style="font-style: italic;overflow-wrap: break-word">An *Answers in Genesis* film accuses Christians who accept an old earh of "compromise."</figcaption>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">An <i>Answers in Genesis</i> film accuses Christians who accept an old earh of "compromise."</figcaption>
 </figure>
 
 <figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:335px">
