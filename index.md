@@ -25,6 +25,11 @@ Throughout my teenage years, I found myself trapped in a familiar cycle. I would
 
 As I grew older, I began to feel increasingly dissatisfied with modern church culture. The casual atmosphere, entertainment-driven worship, and ever-changing trends left me unsettled. My criticism was not directed at any one congregation. Rather, I found myself asking a deeper question: What is the right way to worship God? If God is holy, should worship not reflect that holiness? I longed for reverence, beauty, mystery, and a sense of connection to something far greater than myself.
 
+<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
+  <img style="display: block;width: 100%; height: auto;" src="assets/images/worship.png" alt="Types of Worship"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">As I wrestled with questions about worship, I noticed a striking difference between evangelicalism and Orthodoxy. Evangelical services generally revolve around music and preaching, while Orthodox worship is centered on the Eucharist. This led me to ask a question that would shape much of my journey: How does God desire to be worshiped?</figcaption>
+</figure>
+
 During my college years, many of the assumptions I had inherited came under scrutiny. I entered a period of deconstruction in which I questioned nearly everything I believed. For a time, I came dangerously close to abandoning Christianity altogether. Yet it was during this period that I encountered some of the greatest minds in Christian history through the Great Books of the Western World. Among them, the writings of Saint Augustine had a profound effect on me. Through these works I discovered an intellectual and spiritual depth within Christianity that I had never fully appreciated before. Rather than losing my faith, I began to make it my own.
 
 In the years that followed, I became deeply involved in church life. I attended men's retreats, participated in Bible studies, volunteered in ministry, and eventually served as a youth leader. Yet despite my activity, something still felt incomplete. I knew a great deal about Christianity, but I lacked a meaningful prayer life. My spiritual growth seemed stagnant. I often felt as though I was spinning my wheels, moving constantly but making little progress.
