@@ -10,6 +10,8 @@ title: Home
   <figcaption style="font-style: italic;overflow-wrap: break-word">Nativity of the Theotokos Orthodox Church, Madera, PA</figcaption>
 </figure>
 
+Hello. My name is Milton McDonald. I am an Orthodox Christian, a husband and father, and a software engineer. My family and I have recently gone through a huge transition in our lives, converting from evangelicalism to Eastern Orthodox Christianity. I wrote a memoir detailing that journey and have turned it into this webpage.
+
 I grew up in an evangelical Christian home within the Christian and Missionary Alliance tradition. My love for Jesus was sincere from an early age. I said the sinner's prayer, was baptized, attended Bible camp, sang hymns, participated in youth group, and genuinely desired to follow Christ. The Christian faith was not merely something my family believed. It was the world in which I was raised.
 
 Like many evangelicals of my generation, my spiritual upbringing was shaped by revivalism, dispensational theology, and a strong emphasis on the end times. Conversations about the Rapture, the Antichrist, and biblical prophecy were common. Alongside these ideas were warnings about various dangers to the faith: secular culture, certain forms of entertainment, Satanism, and even Roman Catholicism. Legalism also played a significant role in shaping my spiritual outlook. Christians didn't drink alcohol. Certain movies, music, and activities were viewed with suspicion. Purity culture taught us to fear moral failure and to constantly examine ourselves for signs of spiritual compromise.
