@@ -65,3 +65,7 @@ Glory to God for all things.
 - [Discovering the Ancient Faith](/memoir/discovering-the-ancient-faith)
 - [Difficulties](/memoir/difficulties)
 - [Coming Home](/memoir/coming-home)
+
+<div style="display: flex; justify-content: space-between; width: 100%;">
+  <a href="/memoir/early-faith">First Section: Introduction →</a>
+</div>
