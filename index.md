@@ -66,7 +66,7 @@ Glory to God for all things.
 - [Prophecy Culture and Dispensationalism](/memoir/prophecy-culture-and-dispensationalism)
 - [Exclusivism](/memoir/exclusivism)
 - [Fear](/memoir/fear)
-- [Legalism](/memoir/legalism)
+- [The Evangelical Bubble](/memoir/the-evangelical-bubble)
 - [Revivalism](/memoir/revivalism)
 - [Rise of Modern Worship Culture](/memoir/rise-of-modern-worship-culture)
 - [The Good That Shaped Me](/memoir/the-good-that-shaped-me)
