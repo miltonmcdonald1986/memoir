@@ -25,7 +25,7 @@ Throughout my teenage years, I found myself trapped in a familiar cycle. I would
 
 As I grew older, I began to feel increasingly dissatisfied with modern church culture. The casual atmosphere, entertainment-driven worship, and ever-changing trends left me unsettled. My criticism was not directed at any one congregation. Rather, I found myself asking a deeper question: What is the right way to worship God? If God is holy, should worship not reflect that holiness? I longed for reverence, beauty, mystery, and a sense of connection to something far greater than myself.
 
-<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
+<figure style="float:right;margin: 15px 15px 15px 15px;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="assets/images/worship.png" alt="Types of Worship"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">As I wrestled with questions about worship, I noticed a striking difference between evangelicalism and Orthodoxy. Evangelical services generally revolve around music and preaching, while Orthodox worship is centered on the Eucharist. This led me to ask a question that would shape much of my journey: How does God desire to be worshiped?</figcaption>
 </figure>
