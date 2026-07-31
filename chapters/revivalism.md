@@ -21,7 +21,7 @@ These retreats were intense. The lights were dim, the music was loud and often s
 I remember at one Christian music festival spontaneously getting baptized again, crying my heart out and hoping that this time the baptism would “stick,” because I felt so defiled and dirty. I just wanted to be clean and pure again and pleasing in the sight of God. No matter how hard I tried to grab hold of Him at these retreats, it slipped through my fingers every time. So I continued to chase these spiritual highs. They came, they faded, and I stayed the same.
 
 <div style="display: flex; justify-content: space-between; width: 100%;">
-  <a href="/memoir/legalism">← Previous Section: Legalism</a>
+  <a href="/memoir/the-evangelical-bubble">← Previous Section: The Evangelical Bubble</a>
   <a href="/memoir">Home</a>
   <a href="/memoir/rise-of-modern-worship-culture">Next Section: Rise of Modern Worship Culture →</a>
 </div>
