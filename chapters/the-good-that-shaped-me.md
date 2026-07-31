@@ -4,7 +4,7 @@ title: The Good That Shaped Me
 permalink: /the-good-that-shaped-me/
 ---
 
-It might sound as though I've been complaining as I've written about the framework I grew up in, mentioning things like fear, legalism, and other shortcomings. As if I am dissatisfied or discontent. And perhaps there is some truth to that. But I don't want to end this section without acknowledging the good that shaped me within this tradition.
+It might sound as though I've been complaining about the framework I grew up in, mentioning things like fear, legalism, and other shortcomings. As if I am dissatisfied or discontent. And perhaps there is some truth to that. But I don't want to end this section without acknowledging the good that shaped me within this tradition.
 
 I loved church. I loved being part of the body of Christ as I experienced it, and it was something I always looked forward to as a child and teenager. I felt genuine conviction of sin and a sincere desire for repentance. I understood that holiness mattered and that my life should reflect it. I truly believed in Jesus and was deeply grateful for all He had done for me.
 
