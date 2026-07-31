@@ -1,4 +1,4 @@
-# Friday, July 31
+# Friday, July 31, 2026
 
 Today was Evan and Lola's last full day at Camp Nazareth.
 
