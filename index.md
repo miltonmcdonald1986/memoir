@@ -5,14 +5,14 @@ title: Home
 
 # Why I Converted to Eastern Orthodox Christianity
 
-<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
+<figure style="float:right;margin: 15px 15px 15px 15px;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="assets/images/nativity-of-the-theotokos-church-madera.jpg" alt="Nativity of the Theotokos Church, Madera, PA"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">Nativity of the Theotokos Orthodox Church, Madera, PA</figcaption>
 </figure>
 
 Hello. My name is Milton McDonald. I am an Orthodox Christian, a husband and father, and a software engineer. My family and I have recently gone through a huge transition in our lives, converting from evangelicalism to Eastern Orthodox Christianity. I wrote a memoir detailing that journey and have turned it into this webpage.
 
-<figure style="float:right;margin: 0 15px 15 px 0;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
+<figure style="float:right;margin: 15px 15px 15px 15px;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
   <img style="display: block;width: 100%; height: auto;" src="assets/images/family-photo-1.jpg" alt="Family Photo"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">My family.</figcaption>
 </figure>
