@@ -7,7 +7,7 @@ permalink: /the-evangelical-bubble/
 Looking back, I realize that I grew up inside a distinct evangelical subculture. There were Christian alternatives to everything: Christian music, Christian radio, Christian bookstores, Christian camps, Bible quizzes, youth conventions, and Christian versions of popular entertainment. If there was a Christian version of something, that was usually the version you were expected to choose. We didn't just practice Christianity. We lived inside a Christian bubble with its own music, celebrities, businesses, and unwritten social expectations.
 
 <figure style="float:right;margin: 15px 15px 15px 15px;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
-  <img style="display: block;width: 100%; height: auto;" src="assets/images/family-life.png" alt="Family Life Radio"/>
+  <img style="display: block;width: 100%; height: auto;" src="../assets/images/family-life.png" alt="Family Life Radio"/>
   <figcaption style="font-style: italic;overflow-wrap: break-word">Family Life Radio, one of many Christian radio stations whose signal I could get where I lived.</figcaption>
 </figure>
 
