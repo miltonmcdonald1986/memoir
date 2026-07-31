@@ -6,6 +6,11 @@ permalink: /the-evangelical-bubble/
 
 Looking back, I realize that I grew up inside a distinct evangelical subculture. There were Christian alternatives to everything: Christian music, Christian radio, Christian bookstores, Christian camps, Bible quizzes, youth conventions, and Christian versions of popular entertainment. If there was a Christian version of something, that was usually the version you were expected to choose. We didn't just practice Christianity. We lived inside a Christian bubble with its own music, celebrities, businesses, and unwritten social expectations.
 
+<figure style="float:right;margin: 15px 15px 15px 15px;display:inline-grid;grid-template-columns: minmax(0, max-content);max-width:500px">
+  <img style="display: block;width: 100%; height: auto;" src="assets/images/family-life.png" alt="Family Life Radio"/>
+  <figcaption style="font-style: italic;overflow-wrap: break-word">Family Life Radio, one of many Christian radio stations whose signal I could get where I lived.</figcaption>
+</figure>
+
 The system was also highly legalistic. Entertainment was lightly policed, and don't get me wrong, I think discernment matters. We should be careful about what we allow into our minds. But combined with a host of other rules and expectations, life could sometimes feel oppressive. Alcohol was strictly forbidden for any reason, and there were all sorts of creative attempts to make the prohibition sound biblical, including claims that the wine Jesus made was actually unfermented grape juice. Give me a break.
 
 Purity culture was also at its peak during my formative years. Influenced by figures like Joshua Harris and books such as I Kissed Dating Goodbye, churches promoted purity rings, purity pledges, and father-daughter purity ceremonies. Many of us were taught that sexual sin would leave a permanent stain on our lives. Yes, God could forgive you, but we were often told that you could never truly regain what had been lost. The result was not holiness. It was fear, anxiety, and shame. Sexual failure felt almost unforgivable. You could be redeemed in theory, but in practice many of us felt permanently damaged.
