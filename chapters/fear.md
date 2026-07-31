@@ -41,5 +41,5 @@ One of the things that drew me to Orthodoxy was that it offered a way of followi
 <div style="display: flex; justify-content: space-between; width: 100%;">
   <a href="/memoir/exclusivism">← Previous Section: Exclusivism</a>
   <a href="/memoir">Home</a>
-  <a href="/memoir/legalism">Next Section: Legalism →</a>
+  <a href="/memoir/the-evangelical-bubble">Next Section: The Evangelical Bubble →</a>
 </div>
